@@ -8,6 +8,10 @@ lyrics is a database of lyrics.
 ## Database
 
 * Mac DeMarco - Rock and Roll Night Club (2012)  
+* Mac DeMarco - 2 (2012)  
+* Mac DeMarco - Salad Days (2014)  
+* Mac DeMarco - Another One (2015)  
+* Mac DeMarco - This Old Dog (2017)  
 
 ## Pending
 
