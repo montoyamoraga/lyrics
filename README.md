@@ -37,16 +37,44 @@ lyrics is a database of lyrics.
 
 Artists that will be included:
 
+* Bikini Kill  
 * Björk  
 * Bob Dylan  
-* Dinosaur Jr
+* The Breeders  
+* Café Tacvba  
+* Charly García  
+* Dinosaur Jr  
+* Los Ex  
+* Gustavo Cerati  
+* Interpol  
+* Joy Division  
+* Kendrick Lamar  
+* Lady Gaga  
 * LCD Soundsystem  
+* Lou Reed  
+* Madonna  
+* The Moldy Peaches  
+* Nirvana  
+* Peaches  
 * Pixies  
+* Prehistöricos  
+* Princess Nokia  
+* Los Prisioneros  
 * Radiohead  
+* Regina Spektor  
+* Rihanna
 * Silvio Rodríguez  
+* Soda Stereo  
+* St. Vincent  
 * The Strokes  
+* Suicide  
+* Television  
+* Los Tres  
+* Vampire Weekend  
+* The Velvet Underground  
 * Weezer  
 * The White Stripes  
+* The xx
 * Yeah Yeah Yeahs  
 
 ## License
