@@ -55,6 +55,7 @@ Artists that will be included:
 * Lou Reed  
 * Madonna  
 * The Moldy Peaches  
+* Natalia Lafourcade  
 * Nirvana  
 * Peaches  
 * Pixies  
@@ -73,6 +74,8 @@ Artists that will be included:
 * Los Tres  
 * Vampire Weekend  
 * The Velvet Underground  
+* Víctor Jara  
+* Violeta Parra  
 * Weezer  
 * The White Stripes  
 * The xx
