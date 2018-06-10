@@ -1,0 +1,54 @@
+# Bang
+
+Bang bang bang the bigger the better  
+Bang bang bang the bigger the better  
+Bang bang bang the bigger the better  
+Bang bang bang the bigger the better  
+
+You ain't a baby no more baby  
+You ain't on bigger than before baby  
+I'll rub that cheap black off your lips baby  
+So take a swallow as I spit baby  
+
+As a fuck son you sucked  
+As a fuck son you sucked  
+As a fuck son you sucked  
+As a fuck son you sucked  
+
+As a fuck son you sucked  
+As a fuck son you sucked  
+As a fuck son you sucked  
+As a fuck son you sucked  
+
+My skin tonight is a-blazing  
+But I don't think you're my type  
+What I need tonight's the real thing yeah  
+I need the real thing tonight  
+
+As a fuck son you sucked  
+As a fuck son you sucked  
+As a fuck son you sucked  
+As a fuck son you sucked  
+
+As a fuck son you sucked  
+As a fuck son you sucked  
+As a fuck son you sucked  
+As a fuck son you sucked  
+
+Hey  
+Hey  
+
+The bigger the better  
+Bang bang bang  
+The bigger the better  
+
+Yeah  
+Yeah yeah yeah  
+Oh oh come on
+Yeah yeah yeah  
+
+What I need tonight is the real thing yeah  
+I need the real thing tonight  
+Yeah yeah yeah  
+Yeah yeah oh oh oh  
+Come on alright  

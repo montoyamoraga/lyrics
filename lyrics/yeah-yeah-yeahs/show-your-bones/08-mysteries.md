@@ -1,0 +1,49 @@
+# Mysteries  
+
+My arms are all twisted  
+The only thing I miss is  
+I messed up  
+I missed it  
+I messed up  
+The missing of you  
+
+It's getting to sound like  
+They've seen you around with her  
+
+No mystery  
+No mystery  
+No mysteries  
+
+Everyone knows
+The secretest code of mine  
+They'll tell all my friends  
+And they'll tell al my enemies too  
+
+Mystery  
+No mysteries  
+No mysteries  
+
+No mystery  
+No mystery  
+No mysteries  
+
+Take it away Nick  
+
+I don't even know  
+What it's like not to go back to you  
+I don't even know  
+Who I like less  
+
+You or me  
+You or me  
+
+It's anyone's anyone's guess  
+It's anyone's anyone's guess  
+
+Stress stress  
+Stress stress  
+
+Stress stress  
+Stress stress  
+
+Stress  

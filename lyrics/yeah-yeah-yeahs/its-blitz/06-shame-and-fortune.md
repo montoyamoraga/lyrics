@@ -1,0 +1,41 @@
+# Shame And Fortune  
+
+Shame  
+Is soft they say  
+
+Lose  
+When I play your game  
+
+Come  
+If you call my name  
+
+Lose  
+When I play your game  
+
+You  
+Got an attitude  
+
+You  
+Got a way  
+
+All fortune on the floor  
+All fortune on the floor  
+
+All fortune on the floor  
+All fortune on the floor  
+
+Hey  
+
+Shame  
+Is soft they say  
+
+Lose  
+When I play your game  
+
+All fortune on the floor  
+All fortune on the floor  
+
+All fortune on the floor  
+All fortune on the floor  
+
+Hey  

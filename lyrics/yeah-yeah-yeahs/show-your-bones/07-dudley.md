@@ -1,0 +1,53 @@
+# Dudley  
+
+Hot cold season gonna sink in my sweat  
+No one isn't ever gonna make it there yet  
+If you can't even cope with it  
+Then you'll pass me by  
+And you'll take it over  
+And make it mine  
+
+Fast slow living is a holding me back  
+Wishing that my baby never told me that  
+I can't even cope to make it last  
+Then you'll pass me by  
+And you'll take it over  
+And make it mine  
+
+Then you want it a  
+Want it a  
+Want it again  
+
+Then you want it a  
+Want it a  
+Want it again  
+
+Then you want it a  
+Want it a  
+Want it again  
+
+Then you want it a  
+Want it a  
+Want it again  
+
+My dear you've been used  
+I'm breaking the news  
+Well love nearly beat us  
+I'm thinking like you  
+
+Well I'm thinking of you  
+Well love follows near us  
+Can love really steer us  
+Oh can it be true  
+Oh can it be true  
+
+Lost all reason from playing your games  
+Better quit staring cause you're looking the same  
+I can't even cope to make a change  
+Then you'll pass me by  
+And you'll take it over  
+And make it mine  
+
+Use me up  
+Use me up  
+Taper off and I'm had  

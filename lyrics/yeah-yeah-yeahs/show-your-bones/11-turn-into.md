@@ -1,0 +1,57 @@
+# Turn Into  
+
+I know  
+What I know  
+I know  
+On the car ride down  
+
+I hear it in my head  
+Real low  
+Turn into  
+The only thing I ever  
+
+Turn into  
+Hope I do  
+Turn into you  
+
+I know  
+What I know  
+Well I know  
+That girl you found  
+
+Keeps that  
+Kind of window closed  
+She'll turn into  
+The only thing you ever  
+
+Turn into  
+Hope I do  
+Turn into you  
+
+Can't say why I kept this from you  
+My those quiet eyes become you  
+Leave it where it can't remind us  
+Turn this all around behind us   
+
+Oh well I know  
+Well I'll fall right in  
+To keep you out  
+I'd like to tell you  
+All about it  
+
+I know  
+What I know  
+I know  
+This last time 'round  
+
+I'll hear it  
+In my head real low  
+Turn into  
+The only thing you ever know  
+
+The only thing you ever know  
+
+I know  
+What I know  
+Well I know  
+Ah yes  

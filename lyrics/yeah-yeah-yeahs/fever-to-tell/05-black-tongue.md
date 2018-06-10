@@ -1,0 +1,67 @@
+# Black Tongue  
+
+Hot  
+Ah  
+
+You can keep your black tongue  
+Well I found it at the mortuary  
+You I'm gonna want some want some  
+
+We're high in the back room  
+Gonna have a pack soon  
+With this you will regret  
+Just let it be  
+Yeah yeah yeah  
+
+Aha aha aha aha oh  
+Aha aha aha aha oh  
+Aha aha aha aha oh  
+Aha aha aha aha oh  
+
+Sonny kept his ring on  
+Red tape so ordinary  
+Love I feel like it was gone gone gone gone  
+Let's do this like a prison break  
+I want to see you scream and shake  
+Aha aha aha
+
+Aha aha aha aha oh  
+Aha aha aha aha oh  
+Aha aha aha aha oh  
+Aha aha aha aha oh  
+
+Boy you just a stupid bitch  
+And girl you just a no good dick  
+
+Boy you just a stupid bitch  
+And girl you just a no good dick  
+
+Boy you just a stupid bitch  
+And girl you just a no good dick  
+
+Ha  
+Ah  
+
+We're gonna keep it in the family  
+Yeah well even though we're on the run  
+You they're gonna want some want some  
+
+We're high in the back room  
+Gonna have a pack soon  
+With this you will regret  
+Just let it be  
+Yeah yeah yeah  
+
+Aha aha aha aha oh  
+Aha aha aha aha oh  
+Aha aha aha aha oh  
+Aha aha aha aha oh  
+
+Boy you just a stupid bitch  
+And girl you just a no good dick  
+
+Boy you just a stupid bitch  
+And girl you just a no good dick  
+
+Oh boy you just a stupid bitch  
+And girl you just a no good dick  

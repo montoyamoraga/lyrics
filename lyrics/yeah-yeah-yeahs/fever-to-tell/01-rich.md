@@ -1,0 +1,55 @@
+# Rich  
+
+I'm rich  
+Like a hot noise  
+Rich rich rich  
+I'll take you out boy  
+
+So stuck up  
+I wish you'd stick it to me  
+Flesh ripped off  
+
+Turning it  
+Beating no beat  
+The walls are always speaking  
+No one no one no one  
+No speaking at all  
+
+She slipped  
+Down a rot drink  
+Well unzipped  
+She doesn't exist  
+
+So unloved  
+I took 'em standing up
+So stuck up  
+
+I'm rich  
+Like a hot noise  
+Rich rich rich  
+I'll take you out boy  
+
+Turning it  
+Beating no beat  
+The walls are always speaking  
+No one no one no one  
+No speaking at all  
+
+Turning it  
+Beating no beat  
+The walls are always speaking  
+No one no one no one  
+No speaking at all  
+
+Rich rich rich rich rich rich  
+Rich rich rich rich rich rich  
+Rich rich rich rich rich rich  
+Rich rich rich rich rich rich  
+
+Rich rich rich rich rich rich  
+Rich rich rich rich rich rich  
+Rich rich rich rich rich rich  
+Rich rich rich rich rich rich  
+
+Rich rich rich rich rich rich  
+Rich rich rich rich rich rich  

@@ -1,0 +1,64 @@
+# No No No  
+
+Sorry  
+
+Well I'm frozen  
+Like a soldier  
+Don't know where it stays  
+All over the place  
+
+Time froze  
+Like an ocean  
+Don't know the taste  
+Of a never ending ache  
+
+No no no no  
+Why I hurry when I'm home  
+I hurry when I'm home  
+I'll go  
+
+No no no no  
+Why I hurry when I'm home  
+I hurry when I'm home  
+I'll go  
+
+Oh I'll go  
+
+It's really not bad not worse than you thought  
+He'll never come back he's the man you dropped  
+He'll never come back he's the man you loved  
+
+It's really not bad not worse than you thought  
+He'll always come back he's the man you dropped  
+He'll never come back he's the man you loved  
+
+I told her  
+I told her  
+I'll go  
+
+I told her  
+I told her  
+I told her  
+No no no no no  
+
+Hey  
+
+No no no no  
+Why I hurry when I'm home  
+I hurry when I'm home  
+I'll go  
+
+No no no no  
+Why I hurry when I'm home  
+I hurry when I'm home  
+I'll go  
+
+Oh I'll go  
+
+Shhh  
+
+I told her  
+I told her  
+
+I told her  
+I told her  

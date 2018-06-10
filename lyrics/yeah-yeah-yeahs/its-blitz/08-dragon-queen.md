@@ -1,0 +1,77 @@
+# Dragon Queen  
+
+My mouth  
+Is touching  
+Your mouth  
+Is running  
+
+No loving  
+For nothing  
+Nobody  
+Knock my body out  
+
+My mouth  
+Is blowing  
+Right up  
+I'm so gone  
+
+Incoming  
+Out clubbing  
+Not loving  
+Slow your body down  
+
+How my love gonna show no scar  
+How my love going huh huh  
+How my love gonna show no scar  
+How my love going huh huh  
+
+How my love gonna show no scar  
+How my love going huh huh  
+How my love gonna show no scar  
+How my love going huh huh  
+
+My mouth  
+Is touching  
+Your mouth  
+Is running  
+
+No loving  
+For nothing  
+Nobody  
+Knock my body out  
+
+How my love gonna show no scar  
+How my love going huh huh  
+How my love gonna show no scar  
+How my love going huh huh  
+
+How my love gonna show no scar  
+How my love going huh huh  
+How my love gonna show no scar  
+How my love going huh huh  
+
+How my love gonna show no scar  
+How my love going huh huh  
+How my love gonna show no scar  
+How my love going huh huh  
+
+How my love gonna show no scar  
+How my love going huh huh  
+How my love gonna show no scar  
+How my love going huh huh  
+
+How my love gonna show no scar  
+How my love going huh huh  
+How my love gonna show no scar  
+How my love going huh huh  
+
+Huh  
+
+Going huh huh huh  
+Going huh huh huh  
+
+Going huh huh huh  
+Going huh huh huh  
+
+Going huh huh huh  
+Going huh huh huh  

@@ -1,0 +1,59 @@
+# Kiss Kiss  
+
+Green hours  
+Blue rope  
+Well hot wax four heart are cold  
+
+We're three
+We're three in the dark tonight  
+And baby my snake is a shark tonight  
+
+He's got youth on his side  
+He's got small purple eyes  
+Now he's as straight as a bow  
+When there's nobody home  
+
+Hey  
+
+Everywhere kiss me  
+Everywhere kids speak  
+No catch no beat  
+Everywhere kiss me  
+Everywhere kiss me  
+
+Everywhere kiss me  
+Everywhere kids meet  
+No catch no beat  
+Everywhere kiss   
+Everywhere kiss kiss me  
+
+Now move I'm gonna come dry  
+I dropped my musings out of sight  
+I drank until the waters dried  
+It's all cute 'til someone dies  
+
+Shoot my name up every vein  
+You can't get hurt you can't complain  
+No feet no hands no tail no lies  
+He's got youth on his side  
+
+Hey  
+
+Everywhere kiss me  
+Everywhere kids speak  
+No catch no beat  
+Everywhere kiss me  
+Everywhere kiss me  
+
+Everywhere kiss me  
+Everywhere kids meet  
+No catch no beat  
+Everywhere kiss   
+Everywhere kiss kiss me  
+
+We're three  
+We're three  
+We're three  
+
+We're three we're three in the dark tonight  
+And baby my snake is a shark tonight  
