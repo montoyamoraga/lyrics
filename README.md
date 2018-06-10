@@ -1,9 +1,10 @@
 # lyrics
 
-This is a project by [Aarón Montoya-Moraga](http://montoyamoraga.io/).
+This is a project by [Aarón Montoya-Moraga](http://montoyamoraga.io/).  
 
 lyrics is a database of lyrics.
 
+All the rights belong to the authors.
 
 ## Database
 
@@ -33,7 +34,7 @@ lyrics is a database of lyrics.
 * Yeah Yeah Yeahs - It's Blitz (2009)  
 * Yeah Yeah Yeahs - Mosquito (2013)  
 
-## Pending
+## Soon
 
 Artists that will be included:
 
@@ -76,6 +77,16 @@ Artists that will be included:
 * The White Stripes  
 * The xx
 * Yeah Yeah Yeahs  
+
+## Format  
+
+* All the names of files and folders are in uppercase.  
+* Words are separated by dashes (-).
+* One folder per artist.
+* Inside of every artist folder, one folder per release.  
+* Inside of every release folder, one markdown file (.md) per song.  
+* The files inside of every release folder are numbered, 1-based indexing.  
+* In every file, the first line is the title of the song.  
 
 ## License
 
