@@ -8,6 +8,8 @@ All the rights belong to the authors.
 
 ## Database
 
+* Björk - Debut (1993)  
+* Björk - Post (1995)  
 * Gepe - 5x5 EP (2004)  
 * Gepe - Gepinto (2006)  
 * Gepe - Hungría (2007)  
