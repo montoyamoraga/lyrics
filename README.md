@@ -10,6 +10,15 @@ All the rights belong to the authors.
 
 * Björk - Debut (1993)  
 * Björk - Post (1995)  
+* Björk - Homogenic (1997)  
+* Björk - Selmasongs (2000)  
+* Björk - Vespertine (2001)  
+* Björk - Medúlla (2004)  
+* Björk - Drawing Restraint 9 (2005)  
+* Björk - Volta (2007)  
+* Björk - Biophilia (2011)  
+* Björk - Vulnicura (2015)  
+* Björk - Utopia (2017)  
 * Gepe - 5x5 EP (2004)  
 * Gepe - Gepinto (2006)  
 * Gepe - Hungría (2007)  
@@ -28,6 +37,14 @@ All the rights belong to the authors.
 * Mac DeMarco - Salad Days (2014)  
 * Mac DeMarco - Another One (2015)  
 * Mac DeMarco - This Old Dog (2017)  
+* Rostam - Half-Light (2017)  
+* The Strokes - The Modern Age (2001)  
+* The Strokes - Is This It (2001)  
+* The Strokes - Room On Fire (2003)  
+* The Strokes - First Impressions Of Earth (2006)  
+* The Strokes - Angles (2011)  
+* The Strokes - Comedown Machine (2013)  
+* The Strokes - Future Present Past (2016)  
 * Yeah Yeah Yeahs - Yeah Yeah Yeahs (2001)  
 * Yeah Yeah Yeahs - Machine EP (2002)  
 * Yeah Yeah Yeahs - Fever To Tell (2003)  
@@ -40,8 +57,8 @@ All the rights belong to the authors.
 
 Artists that will be included:
 
+* Álex Anwandter  
 * Bikini Kill  
-* Björk  
 * Bob Dylan  
 * The Breeders  
 * Café Tacvba  
@@ -51,6 +68,7 @@ Artists that will be included:
 * Gustavo Cerati  
 * Interpol  
 * Joy Division  
+* Julian Casablancas  
 * Kendrick Lamar  
 * Lady Gaga  
 * LCD Soundsystem  
@@ -59,6 +77,7 @@ Artists that will be included:
 * The Moldy Peaches  
 * Natalia Lafourcade  
 * Nirvana  
+* Odisea  
 * Peaches  
 * Pixies  
 * Prehistöricos  
@@ -66,12 +85,13 @@ Artists that will be included:
 * Los Prisioneros  
 * Radiohead  
 * Regina Spektor  
-* Rihanna
+* R.E.M.  
+* Rihanna  
 * Silvio Rodríguez  
 * Soda Stereo  
 * St. Vincent  
-* The Strokes  
 * Suicide  
+* Teleradio Donoso  
 * Television  
 * Los Tres  
 * Vampire Weekend  
@@ -80,8 +100,7 @@ Artists that will be included:
 * Violeta Parra  
 * Weezer  
 * The White Stripes  
-* The xx
-* Yeah Yeah Yeahs  
+* The xx  
 
 ## Format  
 

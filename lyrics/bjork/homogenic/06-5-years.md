@@ -1,0 +1,60 @@
+# 5 Years  
+
+You think you're denying me of something  
+Well I've got plenty  
+You're the one who's missing out  
+But you won't notice  
+
+Until after five years  
+If you'll live that long  
+You'll wake up  
+All loveless  
+
+I dare you  
+To take me on  
+I dare you  
+To show me your palms  
+
+I'm so bored  
+With cowards  
+That say they want  
+Then they can't handle  
+
+You can't handle love  
+You can't handle love  
+You just can't handle  
+
+I dare you  
+To take me on  
+I dare you  
+To show me your palms  
+
+What's so scary  
+Not a threat in sight  
+You just can't handle  
+You can't handle love  
+
+You can't handle love  
+Baby you can't handle love  
+It's obvious  
+You can't handle  
+
+I dare you  
+To take me on  
+I dare you  
+To show me your palms  
+
+I'm so bored  
+With cowards  
+That say they want  
+Then they can't handle  
+
+You can't handle love  
+Baby you can't handle love  
+It's obvious  
+You can't handle  
+
+I dare you  
+I dare you  
+I dare you  
+I dare you  
