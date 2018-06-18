@@ -1,0 +1,31 @@
+# Games  
+
+With all the noise above  
+He tried to call his game  
+The trial would go on  
+The day has just begun  
+
+Living in an empty world  
+Living in an empty world  
+Living in an empty world  
+Living in an empty world  
+
+The diamond cuts her eye  
+The crowd behind went wild  
+They weren't all that proud  
+By now they hear it loud  
+
+Living in an empty world  
+Living in an empty world  
+Living in an empty world  
+Living in an empty world  
+
+I'm okay  
+I'm alright  
+I was out  
+Late last night  
+
+Empty love  
+Empty love  
+I will wait  
+One more night  

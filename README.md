@@ -98,6 +98,7 @@ Artists that will be included:
 * The Velvet Underground  
 * Víctor Jara  
 * Violeta Parra  
+* The Voidz  
 * Weezer  
 * The White Stripes  
 * The xx  

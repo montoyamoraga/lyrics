@@ -1,0 +1,75 @@
+# 15 Minutes  
+
+It was all just a dream oh no  
+Yet I wish it was real   
+
+All my peats they were there and they smiled  
+Take a shit
+It was fine  
+
+Everybody's so inviting  
+They've got it in for me I know  
+
+It's not that I don't really love you  
+It's just that I don't really know  
+
+The hateful things you think you want to say yeah  
+Time will turn them into jokes yep  
+
+Yes it was all just a dream oh no  
+Was it real I don't know  
+I hope so  
+
+Here we go  
+Can I play  
+Can I watch  
+
+He would like  
+One more night  
+In your life  
+
+I saw worlds
+They don't stop  
+They're like us  
+
+They go fast  
+Like a sun  
+That's been shot  
+
+Everybody at the party  
+Shouldn't worry if I'm there  
+
+Everybody at the party  
+Shouldn't worry what they wear  
+
+Cause today they'll talk about us  
+And tomorrow they won't care  
+
+This whole life  
+Is it a dream  
+I can't tell  
+
+I got up  
+Then I waved  
+Then I fell  
+
+I recall  
+You were all  
+There with me  
+Overjoyed  
+And at peace  
+
+First time around  
+Second took so long  
+Third time's a charm  
+Circle of fourths  
+
+Five days to rehearse  
+Six to make it work  
+Seven notes in a scale  
+Eight in some countries  
+
+Nine in fancy keys  
+Ten years we've been friends  
+Eleven seconds to hell  
+And of course twelve major chords  
