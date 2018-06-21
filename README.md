@@ -68,6 +68,7 @@ Artists that will be included:
 * Babasónicos  
 * Beastie Boys    
 * Bikini Kill  
+* Black Francis  
 * Bob Dylan  
 * The Breeders  
 * Café Tacvba  
@@ -80,6 +81,7 @@ Artists that will be included:
 * Los Ex  
 * Flaming Lips  
 * Fother Muckers  
+* Frank Black  
 * Gustavo Cerati  
 * Interpol  
 * Jorge González  
@@ -89,6 +91,7 @@ Artists that will be included:
 * Kings Of Convenience  
 * Lady Gaga  
 * LCD Soundsystem  
+* Los Mil Jinetes  
 * Los Prisioneros  
 * Lou Reed  
 * Madonna  
@@ -117,6 +120,7 @@ Artists that will be included:
 * The Velvet Underground  
 * Víctor Jara  
 * Violeta Parra  
+* Virus  
 * The Voidz  
 * Weezer  
 * The White Stripes  
