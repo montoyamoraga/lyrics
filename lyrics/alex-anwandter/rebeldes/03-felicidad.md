@@ -1,0 +1,59 @@
+# Felicidad  
+
+Me pongo tu ropa  
+Tu piel oscura   
+Me espera en la cama  
+
+No estamos contentos  
+No es tan fácil  
+Cambiar la mirada  
+
+Nos olvidamos  
+Por un segundo  
+Que el sol afuera  
+Brilla solo para algunos  
+
+Felicidad  
+Se me escapa de las manos  
+
+Felicidad  
+Sí siempre se va  
+
+Y este nuevo año  
+Te prometo que  
+Esto tiene que cambiar  
+Tú tienes que guardar  
+Más corazón  
+
+Afuera hay ruido  
+Aquí adentro  
+Respiro en la almohada  
+
+Me quedo dormido  
+Y pierdo plata  
+Con cada mirada de amor  
+
+Nos olvidamos  
+Por un segundo  
+Somos distintos  
+Todos como uno  
+
+Felicidad  
+Se me escapa de las manos  
+
+Felicidad  
+Sí siempre se va  
+Y este nuevo año  
+
+Te prometo que esto  
+Tiene que cambiar  
+Tú tienes que guardar  
+Más corazón  
+
+Felicidad  
+
+Felicidad  
+
+Felicidad  
+
+Felicidad  

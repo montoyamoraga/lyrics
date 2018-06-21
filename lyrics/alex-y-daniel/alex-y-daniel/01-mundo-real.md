@@ -1,0 +1,85 @@
+# Mundo Real  
+
+Sé que escuchas  
+Como callas  
+Sé que sufres  
+Como engañas  
+
+Es que siempre  
+Alguien te engaña  
+Sé que sufres  
+Como engañas  
+Engañas  
+
+Sé que comes  
+Cuando hablas  
+Sé que sabes  
+Lo que callas  
+
+Es que siempre  
+Alguien te engaña  
+Sé que sabes  
+Lo que callas  
+Callas  
+
+Si el mundo real  
+Es pasarlo mal  
+Y soy infeliz  
+Hablando de amor  
+
+Mejor lavo mi ropa al sol  
+
+Si es que mientes  
+Cuando hablas  
+Si es que lloras  
+Como cantas  
+
+Es que siempre  
+Alguien te engaña  
+Si es que lloras  
+Como cantas  
+Cantas  
+
+Si es que unes  
+Como desarmas  
+Sé es que piensas  
+Como cambias  
+
+Es que siempre  
+Alguien te engaña  
+Sé que piensas  
+Como cambias  
+Cambias  
+Cambias  
+
+Si el mundo real  
+Es pasarlo mal  
+Y soy infeliz  
+Hablando de amor  
+
+Si el mundo real  
+Es pasarlo mal  
+Y soy infeliz  
+Hablando de amor  
+
+Si el mundo real  
+Es pasarlo mal  
+Y soy infeliz  
+Hablando de amor  
+
+Cuando tu cerebro deje de latir  
+Y el corazón no deje de pensar  
+Por el mismo precio puedes recibir  
+Todo lo que quieras  
+
+Cuando tus oídos dejen de escuchar  
+Todas las palabras que no quiero decir  
+En ese momento puedes recibir  
+Todo lo que quieras  
+
+Si el mundo real  
+Es pasarlo mal  
+Y soy infeliz  
+Hablando de amor  
+
+Mejor lavo mi ropa al sol  

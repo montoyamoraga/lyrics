@@ -1,0 +1,23 @@
+# Una Nueva Aventura  
+
+Una nueva aventura  
+Lejos de mis amigos  
+El día es muy corto  
+Para dudar  
+
+Apenas alcanza el tiempo  
+
+Una idea pesada  
+Amanece conmigo  
+Me tengo que ir  
+Me tengo que ir  
+Como sea de aquí  
+
+Aquí ni yo me entiendo  
+
+Una nueva aventura  
+Lejos de mis amigos  
+El día es muy corto  
+Para dudar  
+
+Apenas alcanza el tiempo  

@@ -1,0 +1,103 @@
+# Una nueva vida  
+
+Bebé  
+Cuándo es  
+El día D  
+Nuestro  
+
+Me pasó  
+Lejos  
+Con sueño  
+En sueños  
+
+No no no  
+No queda tiempo  
+Y una vida maquinal  
+Y una vida maquinal  
+Se transforma en violencia  
+
+No no no  
+No queda tiempo  
+Y una vida maquinal  
+Y una vida maquinal  
+Se transforma en violencia  
+
+Yo  
+Sueño  
+Sueño   
+Tanto  
+
+Con  
+Vida  
+Nueva  
+
+Nos juntamos en la Esso  
+Y comemos chocolates  
+Y yo nado en tus ojos  
+Y no miro para atrás  
+
+Nos contamos un secreto  
+Una prueba de confianza  
+Nos sentamos en la calle  
+Esperando algo más  
+
+No no no  
+No queda tiempo  
+Y una vida maquinal  
+Y una vida maquinal  
+Se transforma en violencia  
+
+Y si no queda tiempo  
+Una vida maquinal   
+Es la vida habitual  
+Se me agota la paciencia  
+
+Yo  
+Sueño  
+Sueño  
+Tanto  
+
+Con  
+Vida  
+Nueva  
+
+No no no  
+No queda tiempo  
+Y una vida maquinal  
+Y una vida maquinal  
+Se transforma  
+Se transforma  
+
+Yo  
+Sueño  
+Sueño
+Tanto
+
+No no no  
+No queda tiempo  
+Y una vida maquinal  
+Y una vida maquinal  
+Se transforma  
+Se transforma en violencia
+
+Con  
+Vida  
+Nueva  
+
+Yo  
+Sueño  
+Sueño
+Tanto
+
+Con  
+Vida  
+Nueva  
+
+Yo  
+Sueño  
+Sueño
+Tanto
+
+Con  
+Vida  
+Nueva  

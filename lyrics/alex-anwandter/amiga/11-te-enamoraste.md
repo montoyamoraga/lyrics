@@ -1,0 +1,60 @@
+# Te Enamoraste  
+
+Te enamoraste  
+De otro corazón  
+No hay nada malo en eso  
+No tienes que pedir perdón  
+
+Si ya no me llamas  
+No escribes  
+Cuando necesitas  
+Un hombro en que llorar  
+Y no soy yo  
+La piedra en que te inclinas  
+Y descansas  
+Ni el amor en el que piensas  
+Cuando piensas que  
+Te enamoraste  
+
+No me cambiaste  
+Así lo entiendo yo  
+Que no funciona así  
+Si hubo alguna víctima  
+Fuimos los dos  
+
+Y ya no hace falta  
+Hablar o discutir  
+Que todo todo  
+Fue hermoso  
+Y yo no me arrepiento  
+De ningún segundo  
+Que pasé contigo  
+Y quiero guardar  
+Todo lo que hicimos  
+Por siempre  
+Y si es lo que necesitas  
+Eso está bien  
+Conmigo y soy feliz  
+Viendo que estás contenta  
+Siendo tu amigo  
+
+Yo tengo un nuevo amor  
+Que me hace tanto bien  
+Me quiere como soy  
+Quizás incluso como tú  
+
+Me acompaña donde voy  
+También entiende nuestro amor  
+Cuando no tiene explicación  
+Ni hace falta discutir  
+Que todo todo
+Fue hermoso  
+Yo no me arrepiento no  
+
+Bendice mi amor  
+Bendice mi amor  
+Quiero que estés contenta  
+
+Bendice mi amor  
+Quiero que estés contenta  
+Siendo mi amigo  

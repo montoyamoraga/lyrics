@@ -8,6 +8,10 @@ All the rights belong to the authors.
 
 ## Database
 
+* Álex Anwandter - Odisea (2010)  
+* Álex Anwandter - Rebeldes (2011)  
+* Álex Anwandter - Amiga (2016)  
+* Álex y Daniel - Álex y Daniel (2013)  
 * Björk - Debut (1993)  
 * Björk - Post (1995)  
 * Björk - Homogenic (1997)  
@@ -57,7 +61,6 @@ All the rights belong to the authors.
 
 Artists that will be included:
 
-* Álex Anwandter  
 * Bikini Kill  
 * Bob Dylan  
 * The Breeders  
@@ -72,6 +75,7 @@ Artists that will be included:
 * Kendrick Lamar  
 * Lady Gaga  
 * LCD Soundsystem  
+* Los Prisioneros  
 * Lou Reed  
 * Madonna  
 * The Moldy Peaches  
@@ -82,7 +86,6 @@ Artists that will be included:
 * Pixies  
 * Prehistöricos  
 * Princess Nokia  
-* Los Prisioneros  
 * Radiohead  
 * Regina Spektor  
 * R.E.M.  
@@ -91,6 +94,7 @@ Artists that will be included:
 * Soda Stereo  
 * St. Vincent  
 * Suicide  
+* Taller Dejao  
 * Teleradio Donoso  
 * Television  
 * Los Tres  

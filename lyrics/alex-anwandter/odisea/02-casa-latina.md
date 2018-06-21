@@ -1,0 +1,50 @@
+# Casa latina  
+
+Otra víctima del siglo veinte  
+Que empezó y terminó de repente  
+
+Y tengo dudas sobre qué hacer  
+Bebé has sido un amigo fiel  
+No me fragmentes yéndote  
+
+Si no es real  
+No sé qué es real  
+Es el fin del mundo y no sé qué está mal  
+
+Habrá alguien más que esté  
+Despierto  
+Despierto  
+
+Y el siglo nuevo también me asesina  
+Y una piscina de ketamina  
+Y mi mandíbula está dormida  
+En la sonrisa sin corazón  
+La pena apenas contenida  
+En el video de la canción  
+
+Amigo  
+
+Si no es real  
+No sé qué es real  
+No puedo dormir y no sé qué está mal  
+
+Si no es real  
+No sé qué es real  
+Es el fin del mundo y no sé qué está mal  
+
+Habrá alguien más que esté  
+Despierto  
+Despierto  
+
+Despierto  
+Despierto  
+Despierto  
+Despierto  
+
+Despierto  
+Despierto  
+Despierto  
+Despierto  
+
+Despierto  
+Despierto  

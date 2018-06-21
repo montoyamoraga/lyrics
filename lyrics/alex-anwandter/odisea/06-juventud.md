@@ -1,0 +1,61 @@
+# Juventud  
+
+Mañana  
+Usted será  
+Asesinado  
+
+Mañana  
+Usted será  
+Asaltado  
+
+Mañana  
+Mañana  
+Mañana  
+
+Bebé  
+Tu personalidad  
+No sirve  
+De nada  
+
+Bebé  
+Tu personalidad  
+No sirve  
+
+Problemas  
+Con sus ampolletas  
+La solución  
+
+Problemas  
+Con sus ampolletas  
+La solución  
+
+Bebé  
+Tu personalidad  
+No sirve  
+De nada  
+
+Bebé  
+Tu personalidad  
+No sirve  
+De nada  
+
+Juventud  
+Tu personalidad  
+No sirve  
+De nada  
+De nada  
+
+Juventud  
+Tu personalidad  
+No sirve  
+De nada  
+
+Bebé  
+Tu personalidad  
+No sirve  
+De nada  
+
+Bebé  
+Tu personalidad  
+No sirve  
+No sirve  
