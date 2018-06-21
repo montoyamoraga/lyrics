@@ -41,6 +41,9 @@ All the rights belong to the authors.
 * Mac DeMarco - Salad Days (2014)  
 * Mac DeMarco - Another One (2015)  
 * Mac DeMarco - This Old Dog (2017)  
+* Prehistöricos - La Orquesta Oculta (2010)  
+* Prehistöricos - Nuestro Día Vendrá (2014)  
+* Prehistöricos - La Velocidad de las Plantas (2016)  
 * Rostam - Half-Light (2017)  
 * The Strokes - The Modern Age (2001)  
 * The Strokes - Is This It (2001)  
@@ -61,18 +64,29 @@ All the rights belong to the authors.
 
 Artists that will be included:
 
+* Ases Falsos  
+* Babasónicos  
+* Beastie Boys    
 * Bikini Kill  
 * Bob Dylan  
 * The Breeders  
 * Café Tacvba  
 * Charly García  
+* Colombina Parra  
+* Cristóbal Briceño  
+* The Cure  
+* Diego Lorenzini  
 * Dinosaur Jr  
 * Los Ex  
+* Flaming Lips  
+* Fother Muckers  
 * Gustavo Cerati  
 * Interpol  
+* Jorge González  
 * Joy Division  
 * Julian Casablancas  
 * Kendrick Lamar  
+* Kings Of Convenience  
 * Lady Gaga  
 * LCD Soundsystem  
 * Los Prisioneros  
@@ -84,7 +98,6 @@ Artists that will be included:
 * Odisea  
 * Peaches  
 * Pixies  
-* Prehistöricos  
 * Princess Nokia  
 * Radiohead  
 * Regina Spektor  
@@ -98,7 +111,9 @@ Artists that will be included:
 * Teleradio Donoso  
 * Television  
 * Los Tres  
+* Tus Amigos Nuevos  
 * Vampire Weekend  
+* VariosArtistas  
 * The Velvet Underground  
 * Víctor Jara  
 * Violeta Parra  
