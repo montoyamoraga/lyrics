@@ -1,0 +1,46 @@
+# Búscate un Lugar para Ensayar  
+
+Dale cámbiame la cara  
+No te tengas pena  
+Ordena tus ideas  
+Búscate un lugar para ensayar  
+
+Confusión y rebeldía  
+Pueden enredarse  
+Pero son distintas  
+Búscate un lugar para ensayar  
+
+Vamos habla fuerte y claro  
+Pero cuídate de transformarte en un gritón  
+La fuerza de la idea no se mide en decibeles  
+La fuerza de la idea no depende de una masa  
+
+Pongo el caso de una marcha  
+Nos conmueve la fiereza de cada canción  
+Pero son frases hechas que se olvidan con facilidad  
+Después de unas cervezas nadie sabe a dónde quedó la rabia  
+
+Dale cámbiame la cara  
+No te tengas pena  
+Ordena tus ideas  
+Búscate un lugar para ensayar  
+
+Confusión y rebeldía  
+Pueden enredarse  
+Pero son distintas  
+Búscate un lugar para ensayar  
+
+Disconforme o aturdido  
+Examina el germen de tu disconformidad  
+Será que estás luchando para el bando equivocado  
+Serás participante de peleas engañosas  
+
+No te eches a morir  
+Templa tu cabeza y no te eches a morir  
+Pero si insistes en tirarte al suelo a darte color  
+Descuéntale la agonía muérete y despeja el paso  
+
+Dale cámbiame la cara  
+No te tengas pena  
+Ordena tus ideas  
+Búscate un lugar para ensayar  

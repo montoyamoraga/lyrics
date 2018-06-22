@@ -1,0 +1,27 @@
+# Una Estrella Que Se Mueve  
+
+En el cielo de la tarde  
+Una estrella se empezó a mover  
+Y suspendí  
+Mi actividad para seguir  
+
+Su brillante movimiento  
+En trote ligero hacia el sur  
+Me amanecí  
+Vadeando el Perquilauquén  
+
+La luz del día  
+Veló tu expresión  
+En la humedad de un sauce  
+La noche esperé  
+
+De nuevo te apareciste  
+De nuevo te pusiste a correr  
+Abandoné  
+Cualquier deseo de entender  
+
+Tu vuelo me tranquiliza  
+Tu marcha me llena de ansiedad  
+Sin avisar  
+Zanjaste aterrizar  
+Encima de la Copelec  

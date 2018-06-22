@@ -12,6 +12,10 @@ All the rights belong to the authors.
 * Álex Anwandter - Rebeldes (2011)  
 * Álex Anwandter - Amiga (2016)  
 * Álex y Daniel - Álex y Daniel (2013)  
+* Ases Falsos - Juventud Americana (2012)  
+* Ases Falsos - Conducción (2014)  
+* Ases Falsos - El Hombre Puede (20146  
+* Ases Falsos - Mala Fama (2018)  
 * Björk - Debut (1993)  
 * Björk - Post (1995)  
 * Björk - Homogenic (1997)  
@@ -64,7 +68,6 @@ All the rights belong to the authors.
 
 Artists that will be included:
 
-* Ases Falsos  
 * Babasónicos  
 * Beastie Boys    
 * Bikini Kill  

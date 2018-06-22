@@ -1,0 +1,51 @@
+# Más Se Fortalece  
+
+Hasta cuándo seguirás  
+Confundiendo la misión  
+Que se les encomendó  
+En su misma fundación  
+
+Solo a ti te hace falta que se escriba  
+Una fe de erratas para donde dice  
+Somos del débil el protector  
+
+Debe decir somos del  
+Débil el castigador  
+Del amo somos el  
+Perro guardián  
+
+Queda claro  
+Queda claro ya  
+
+Queda claro ya  
+
+Si te empeñas en luchar  
+Cómo puedes desear  
+Lucha sin oposición  
+Pelea sin represión  
+
+Es que de verdad quieres poner el hombro  
+O es que nada más quieres pegarle a alguien  
+Calibra tu corazón  
+
+Yo ya me tengo que ir  
+Pero hay una cosa más  
+Que quiero conversar  
+
+Atacarlos solo logrará  
+Hacerlos más fuertes  
+
+Pégale a los pacos más  
+Más se fortalecen  
+
+Pégale al estado y más  
+Más se fortalece  
+
+Pégale al mapuche y más  
+Más se fortalece  
+
+Pégale al escolar  
+Pégale a los curas  
+
+A tu padre al Fisco y más  
+Más se fortalecen  

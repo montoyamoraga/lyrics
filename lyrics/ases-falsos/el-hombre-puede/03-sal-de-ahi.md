@@ -1,0 +1,38 @@
+# Sal de Ahí  
+
+No se trata de  
+Que yo no quiera  
+Representación  
+Es otra cosa  
+Puede parecer lo mismo  
+Pero no lo es  
+
+Pues tiene que ver  
+Con querer algo  
+Yo quiero no ser  
+Representado  
+Y lo quiero con cerebro  
+Vientre y corazón  
+
+Sal de ahí  
+Es mi recomendación  
+Hay otro aire para ti  
+Te digo no más  
+
+Pensaré en la reforma  
+Cuando el reformista no sea  
+Pura deformidad  
+
+Vives con las patas sucias  
+Metidas en el mismo  
+Agua que después ofrecerás  
+
+Sal de ahí  
+Es mi recomendación  
+Hay otro aire para ti  
+Te digo no más  
+
+Sal de ahí  
+Me fui sin mirar atrás  
+Decreto mi propia ley  
+Y la voy a respetar  

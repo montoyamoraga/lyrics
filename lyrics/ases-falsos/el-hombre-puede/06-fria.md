@@ -1,0 +1,70 @@
+# Fría  
+
+Solo el cristal  
+Me separa de ti  
+Del amargor  
+Dipuesto a complacer  
+A este servidor  
+
+En la aridez  
+Y en la tempestad  
+Sabes caer  
+Y sosegar mi ser  
+Siempre estás ahí  
+
+Incondicional  
+
+Fría  
+Envuelta en un glacial  
+Suave barniz  
+
+Fría  
+Me enamoré de ti  
+Hazme feliz  
+
+Trepo por el  
+Tallo de lúpulo  
+Al cielo iré  
+Tu espuma en cúmulos  
+Atravesaré  
+
+Somos los tres  
+Junto a tu hermano Pan  
+La agrupación  
+Perfecta inmortal  
+Abro mi portal  
+
+Sírvanse a pasar  
+
+Fría  
+Envuelta en un glacial  
+Suave barniz  
+
+Fría  
+Me enamoré de ti  
+Hazme feliz  
+
+Duerme  
+Elixir industrial  
+En el metal  
+
+Sé que  
+Fermentas para mí  
+Sé que es así  
+
+Sé que  
+Fermentas para mí  
+Sé que es así  
+
+Sé que es así  
+Sé que es así  
+Dale no más  
+
+Dale no más  
+Dale no más  
+Sé que es así  
+
+Fría  
+Fría  
+Fría  
+Fría  

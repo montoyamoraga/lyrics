@@ -1,0 +1,38 @@
+# Quemando  
+
+Quemando  
+Estoy contento y quemando  
+Estoy cruzando fronteras en mí  
+Y no hay autoridad  
+Que me pueda asustar  
+
+Quemando  
+Estoy contento y quemando  
+Siento caer las barreras en mí  
+Y un gracioso empujón  
+Que me impulsa a buscar la verdad  
+
+Me dan ganas de salir  
+Con mi perro a disfrutar la ciudad  
+Sin tener que colocarle la correa a su collar  
+Pienso mientras voy  
+
+Quemando  
+Estoy contento y quemando  
+Estoy cruzando fronteras en mí  
+Y no hay autoridad  
+Que me pueda asustar  
+
+Quemando  
+Estoy contento y quemando  
+Siento caer las barreras en mí  
+Y un gracioso empujón  
+Que me impulsa a buscar la verdad  
+
+Pero en cuanto a nuestro plan  
+Fijo que a algún viejo le ladrarás  
+Y sabemos que se asustan y les baja la hueá  
+No salgamos nada  
+
+Quemando  
+Quemando  

@@ -1,0 +1,64 @@
+# La Sinceridad del Cosmos  
+
+Los animales no se equivocan  
+Los animales nunca se equivocarán  
+Son portadores de la sinceridad del cosmos  
+
+Los animales no se equivocan  
+Los animales nunca se equivocarán  
+Son portadores de la sinceridad del cosmos  
+
+Mira cómo se portan los  
+Perros callejeros  
+Cuando se enfrentan estudiantes  
+Y carabineros  
+
+Mira cómo se portan los  
+Perros callejeros  
+Cuando se enfrentan estudiantes  
+Y carabineros  
+
+Los animales no se equivocan  
+Los animales nunca se equivocarán  
+Son portadores de la sinceridad del cosmos  
+
+Dime si has visto alguna vez  
+A un animalito  
+Defender a la policía  
+Sin estar forzado  
+
+Tanto el pastor alemán  
+Como los caballos  
+Tienen el instinto atrofiado  
+Como los soldados  
+
+Ladra ládrale a la autoridad  
+Ladra ládrale a la institución  
+Ladra ládrale al conducto regular  
+
+Ladra ládrale a la autoridad  
+Ladra ládrale a la institución  
+Ladra ládrale al conducto regular  
+
+Mira cómo se portan los  
+Perros callejeros  
+Cuando se enfrentan estudiantes  
+Y carabineros  
+
+Ladra ládrale a la autoridad  
+Ladra ládrale a la institución  
+Ladra ládrale al conducto regular  
+
+Ladra ládrale a la autoridad  
+Los animales no se equivocan  
+Ladra ládrale a la institución  
+Los animales nunca se equivocarán  
+Ladra ládrale  
+Son portadores de la sinceridad del cosmos  
+
+Ladra ládrale a la autoridad  
+Los animales no se equivocan  
+Ladra ládrale a la institución  
+Los animales nunca se equivocarán  
+Ladra ládrale  
+Son portadores de la sinceridad del cosmos  

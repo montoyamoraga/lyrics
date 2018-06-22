@@ -1,0 +1,75 @@
+# Fuerza Especial  
+
+Entré a la escuela cuando cumplí diecinueve  
+Y me imaginaba campamentos en la nieve  
+Como el que salía en el video  
+Que pusieron para los exámenes  
+De admisión  
+
+Pasé las pruebas casi sin dificultades  
+Y me destaqué en actividades sociales  
+Como judo coro y también siendo  
+El que más asistencias entregó  
+En fútbol  
+
+Los seis semestres se me hicieron un instante  
+Hice amistades y tuve buenos romances  
+Cuando me avisaron que estaba seleccionado  
+Dentro de las fuerzas  
+Especiales  
+
+Pesadamente fue cayendo el calendario  
+Trabajando en manifestaciones y en estadios  
+Mis colegas no son mala gente  
+Pero tanta hostilidad te va poniendo  
+Idiota  
+
+Un día se abrió la vacante para que alguien   
+Se hiciera cargo de grabar operativos  
+Levanté la mano y me entregaron  
+Una filmadora chiquitita y digital  
+
+Me pagaron unos talleres  
+Y le fui agarrando el gustito  
+Si hasta hice unos videos  
+Musicales en mi pasaje  
+
+No bien bajamos del camión  
+Nos insultan y nos escupen  
+Si acaso importa mi opinión  
+Quisiera verlos escupiendo  
+Al directorio de HidroAysén  
+Y a sus familias  
+
+Déjame  
+Sentir la fuerza  
+Especial  
+Que está emergiendo  
+
+Lamento estar perdiendo el tiempo  
+Igual como lo pierdes tú  
+Mientras los que arman la pelea  
+Ocupan todos sus esfuerzos  
+En repartirse mejor  
+Lo que es de nadie  
+
+Déjame  
+Sentir la fuerza  
+Especial  
+Que está emergiendo  
+
+Son problemas en mi trabajo  
+Ya no entiendo a mis compañeros  
+Y la gente que anda en la calle  
+Lleva despoblado el cerebro  
+
+Pero uno tiene su estrella  
+Preocupada por sus muchachos  
+Sorpresivamente me regaló  
+Un problema al corazón  
+
+Me jubilaron con pensión anticipada  
+Y de pronto tuve el tiempo que me faltaba  
+Para al fin sentarme a escribir  
+Lo que sería la mejor película  
+De Chile  
