@@ -14,7 +14,7 @@ All the rights belong to the authors.
 * Álex y Daniel - Álex y Daniel (2013)  
 * Ases Falsos - Juventud Americana (2012)  
 * Ases Falsos - Conducción (2014)  
-* Ases Falsos - El Hombre Puede (20146  
+* Ases Falsos - El Hombre Puede (2016)  
 * Ases Falsos - Mala Fama (2018)  
 * Björk - Debut (1993)  
 * Björk - Post (1995)  
@@ -56,6 +56,9 @@ All the rights belong to the authors.
 * The Strokes - Angles (2011)  
 * The Strokes - Comedown Machine (2013)  
 * The Strokes - Future Present Past (2016)  
+* The xx - xx (2009)  
+* The xx - Coexist (2012)  
+* The xx - I See You (2017)  
 * Yeah Yeah Yeahs - Yeah Yeah Yeahs (2001)  
 * Yeah Yeah Yeahs - Machine EP (2002)  
 * Yeah Yeah Yeahs - Fever To Tell (2003)  
@@ -68,8 +71,11 @@ All the rights belong to the authors.
 
 Artists that will be included:
 
+* Arcade Fire  
 * Babasónicos  
-* Beastie Boys    
+* Beach House  
+* Beastie Boys  
+* Best Coast  
 * Bikini Kill  
 * Black Francis  
 * Bob Dylan  
@@ -127,17 +133,17 @@ Artists that will be included:
 * The Voidz  
 * Weezer  
 * The White Stripes  
-* The xx  
 
 ## Format  
 
 * All the names of files and folders are in uppercase.  
-* Words are separated by dashes (-).
+* Filenames words are separated by dashes (-).
 * One folder per artist.
 * Inside of every artist folder, one folder per release.  
 * Inside of every release folder, one markdown file (.md) per song.  
 * The files inside of every release folder are numbered, 1-based indexing.  
 * In every file, the first line is the title of the song.  
+* Every verse ends with two spaces  
 
 ## License
 

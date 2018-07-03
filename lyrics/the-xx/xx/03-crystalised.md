@@ -1,0 +1,48 @@
+# Crystalised  
+
+You've applied the pressure  
+To have me crystalised  
+And you've got the faith  
+That I could bring paradise  
+
+I'll forgive and forget  
+Before I'm paralysed  
+Do I have to keep up the pace  
+To keep you satisfied  
+
+Things have gotten closer to the sun  
+And I've done things in small doses  
+So don't think that I'm pushing you away  
+When you're the one that I've kept closest  
+
+You don't move slow  
+Taking steps in my direction  
+The sound resounds echo  
+Does it lessen your affection no  
+
+You say I'm foolish  
+For pushing this aside  
+But burn down our home  
+I won't leave alive  
+
+Glaciers have melted to the sea  
+I wish the tide would take me over  
+I've been down on my knees  
+And you just keep on getting closer  
+
+Glaciers have melted to the sea  
+Things have gotten closer to the sun  
+I wish the tide would take me over  
+And I've done things in small doses  
+I've been down on my knees  
+So don't think that I'm pushing you away  
+And you just keep on getting closer  
+When you're the one that I've kept closest  
+
+Go slow  
+Go slow  
+
+Go slow  
+Go slow  
+
+Go slow  
