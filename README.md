@@ -45,6 +45,18 @@ All the rights belong to the authors.
 * Mac DeMarco - Salad Days (2014)  
 * Mac DeMarco - Another One (2015)  
 * Mac DeMarco - This Old Dog (2017)  
+* The Magnetic Fields - Distant Plastic Trees (1991)  
+* The Magnetic Fields - The Wayward Bus (1992)  
+* The Magnetic Fields - The House of Tomorrow EP (1992)  
+* The Magnetic Fields - The Charm of the Highway Strip (1994)  
+* The Magnetic Fields - Holiday (1994)  
+* The Magnetic Fields - Get Lost (1995)  
+* The Magnetic Fields - 69 Love Songs (1999)  
+* The Magnetic Fields - i (2004)  
+* The Magnetic Fields - Distortion (2008)  
+* The Magnetic Fields - Realism (2010)  
+* The Magnetic Fields - Love at the Bottom of the Sea (2012)
+* The Magnetic Fields - 50 Song Memoir (2017)  
 * Prehistöricos - La Orquesta Oculta (2010)  
 * Prehistöricos - Nuestro Día Vendrá (2014)  
 * Prehistöricos - La Velocidad de las Plantas (2016)  
@@ -71,6 +83,7 @@ All the rights belong to the authors.
 
 Artists that will be included:
 
+* The 6ths
 * Arcade Fire  
 * Babasónicos  
 * Beach House  
@@ -91,6 +104,8 @@ Artists that will be included:
 * Flaming Lips  
 * Fother Muckers  
 * Frank Black  
+* Future Bible Heroes  
+* The Gothic Archies  
 * Gustavo Cerati  
 * Interpol  
 * Jorge González  
@@ -107,7 +122,6 @@ Artists that will be included:
 * The Moldy Peaches  
 * Natalia Lafourcade  
 * Nirvana  
-* Odisea  
 * Peaches  
 * Pixies  
 * Princess Nokia  
