@@ -1,10 +1,21 @@
 # lyrics
 
-This is a project by [Aarón Montoya-Moraga](http://montoyamoraga.io/).  
+lyrics is a project by [Aarón Montoya-Moraga](http://montoyamoraga.io/).  
 
 lyrics is a database of lyrics.
 
 All the rights belong to the authors.
+
+## Format  
+
+* All the names of files and folders are in lowercase
+* Filenames words are separated by dashes (-)
+* One folder per artist
+* Inside of every artist folder, one folder per release
+* Inside of every release folder, one markdown file (.md) per song
+* The files inside of every release folder are numbered, 1-based indexing
+* In every file, the first line is the title of the song
+* Every line ends with two spaces  
 
 ## Database
 
@@ -147,17 +158,6 @@ Artists that will be included:
 * The Voidz  
 * Weezer  
 * The White Stripes  
-
-## Format  
-
-* All the names of files and folders are in uppercase.  
-* Filenames words are separated by dashes (-).
-* One folder per artist.
-* Inside of every artist folder, one folder per release.  
-* Inside of every release folder, one markdown file (.md) per song.  
-* The files inside of every release folder are numbered, 1-based indexing.  
-* In every file, the first line is the title of the song.  
-* Every verse ends with two spaces  
 
 ## License
 
