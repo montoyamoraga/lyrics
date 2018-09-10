@@ -109,6 +109,7 @@ Artists that will be included:
 * Colombina Parra  
 * Cristóbal Briceño  
 * The Cure  
+* David Bowie  
 * Diego Lorenzini  
 * Dinosaur Jr  
 * Los Ex  
@@ -119,6 +120,7 @@ Artists that will be included:
 * The Gothic Archies  
 * Gustavo Cerati  
 * Interpol  
+* Joan Manuel Serrat  
 * Jorge González  
 * Joy Division  
 * Julian Casablancas  
