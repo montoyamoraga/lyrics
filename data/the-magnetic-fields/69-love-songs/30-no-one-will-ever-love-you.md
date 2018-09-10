@@ -9,7 +9,8 @@ Where is the dream for which I paid dearly
 
 When things go wrong I sing along  
 It is the nature of the business  
-But you're not here to make my sad songs more sincere  
+But you're not here  
+To make my sad songs more sincere  
 
 No one will ever love you honestly  
 No one will ever love you for your honesty  
