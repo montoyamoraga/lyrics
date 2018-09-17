@@ -2,19 +2,19 @@
 
 lyrics is a project by [Aarón Montoya-Moraga](http://montoyamoraga.io/).  
 
-lyrics is a database of lyrics.
+lyrics is a database of lyrics.  
 
-All the rights belong to the authors.
+All the rights belong to the authors.  
 
 ## Format  
 
-* All the names of files and folders are in lowercase
-* Filenames words are separated by dashes (-)
-* One folder per artist
-* Inside of every artist folder, one folder per release
-* Inside of every release folder, one markdown file (.md) per song
-* The files inside of every release folder are numbered, 1-based indexing
-* In every file, the first line is the title of the song
+* All the names of files and folders are in lowercase  
+* Filenames words are separated by dashes (-)  
+* One folder per artist  
+* Inside of every artist folder, one folder per release  
+* Inside of every release folder, one markdown file (.md) per song  
+* The files inside of every release folder are numbered, 1-based indexing  
+* In every file, the first line is the title of the song  
 * Every line ends with two spaces  
 
 ## Database
@@ -66,7 +66,7 @@ All the rights belong to the authors.
 * The Magnetic Fields - i (2004)  
 * The Magnetic Fields - Distortion (2008)  
 * The Magnetic Fields - Realism (2010)  
-* The Magnetic Fields - Love at the Bottom of the Sea (2012)
+* The Magnetic Fields - Love at the Bottom of the Sea (2012)  
 * The Magnetic Fields - 50 Song Memoir (2017)  
 * Prehistöricos - La Orquesta Oculta (2010)  
 * Prehistöricos - Nuestro Día Vendrá (2014)  
@@ -161,6 +161,6 @@ Artists that will be included:
 * Weezer  
 * The White Stripes  
 
-## License
+## License  
 
-MIT
+MIT  
