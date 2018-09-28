@@ -1,69 +1,69 @@
-# Barely Legal  
+# Barely Legal
 
-I didn't take no shortcuts  
-I spent the money that I saved up  
-Oh momma running out of luck  
-Like my sister don't give a fuck  
+I didn't take no shortcuts
+I spent the money that I saved up
+Oh momma running out of luck
+Like my sister don't give a fuck
 
-Oh his strange manners I love them so  
-I wish you'd wear your new trench coat  
-I don't show up on weekdays  
-That's something you learned yesterday  
+Oh his strange manners I love them so
+I wish you'd wear your new trench coat
+I don't show up on weekdays
+That's something you learned yesterday
 
-I just want to misbehave  
-I just want to be your slave  
-You ain't got nothing I want but  
-I want it all I just can't figure out  
-Nothing  
+I just want to misbehave
+I just want to be your slave
+You ain't got nothing I want but
+I want it all I just can't figure out
+Nothing
 
-I wanna steal your innocence  
-To me my life it don't make sense  
-I took five dollars won't get me far  
-My last resort is to steal your car  
+I wanna steal your innocence
+To me my life it don't make sense
+I took five dollars won't get me far
+My last resort is to steal your car
 
-Drive you to work you'll be on time  
-These little problems they're not yours and mine  
-Come on and listen to what I say  
-I've got some secrets that'll make you stay  
+Drive you to work you'll be on time
+These little problems they're not yours and mine
+Come on and listen to what I say
+I've got some secrets that'll make you stay
 
-I just want to turn you down  
-I just want to turn you around  
-Oh you ain't got nothing I want but  
-I want it all I just can't figure out  
-Nothing  
+I just want to turn you down
+I just want to turn you around
+Oh you ain't got nothing I want but
+I want it all I just can't figure out
+Nothing
 
-And all he said is I'm a freak  
-He ordered them to make mistakes  
-And all together it went well  
-We made pretend we were best friends  
+And all he said is I'm a freak
+He ordered them to make mistakes
+And all together it went well
+We made pretend we were best friends
 
-Today the day that I was born  
-He won't leave me alone he keeps asking for more  
-Together again like the beginning  
-But for the record it's between you and me  
+Today the day that I was born
+He won't leave me alone he keeps asking for more
+Together again like the beginning
+But for the record it's between you and me
 
-I wanna steal your innocence  
-To me my life it don't make sense  
-Oh his strange manners I love them so  
-Why won't he wear his new trench coat  
+I wanna steal your innocence
+To me my life it don't make sense
+Oh his strange manners I love them so
+Why won't he wear his new trench coat
 
-I didn't take no shortcuts  
-I spent the money that I saved up  
-Oh momma running out of luck  
-Like my sister don't give a fuck  
+I didn't take no shortcuts
+I spent the money that I saved up
+Oh momma running out of luck
+Like my sister don't give a fuck
 
-I just want to turn you down  
-And maybe later I'll turn you around  
-You ain't never had nothing I want but  
-I want it all I just can't figure out  
-Nothing  
+I just want to turn you down
+And maybe later I'll turn you around
+You ain't never had nothing I want but
+I want it all I just can't figure out
+Nothing
 
-And all he said is I'm a freak  
-He ordered them to make mistakes  
-And all together it went well  
-We made pretend we were best friends  
+And all he said is I'm a freak
+He ordered them to make mistakes
+And all together it went well
+We made pretend we were best friends
 
-Today the day that I was born  
-He won't leave me alone he keeps asking for more  
-Together again like the beginning  
-I said it's between you and I  
+Today the day that I was born
+He won't leave me alone he keeps asking for more
+Together again like the beginning
+I said it's between you and I

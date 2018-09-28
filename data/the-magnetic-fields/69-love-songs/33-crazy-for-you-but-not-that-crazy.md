@@ -1,32 +1,32 @@
-# (Crazy For You But) Not That Crazy  
+# (Crazy For You But) Not That Crazy
 
-I built a ship with my own hands  
-To take us to the moon  
-I took a pen in my own hand  
-And wrote you a hundred tunes  
+I built a ship with my own hands
+To take us to the moon
+I took a pen in my own hand
+And wrote you a hundred tunes
 
-Now I'm crazy for you but not that crazy  
-I'm crazy for you but not that crazy  
+Now I'm crazy for you but not that crazy
+I'm crazy for you but not that crazy
 
-I pretended you were Jesus  
-You were just dying to save me  
-I stood beneath your window  
-With my ukulele  
-I made my yard a playground  
-Just in case we had a baby  
+I pretended you were Jesus
+You were just dying to save me
+I stood beneath your window
+With my ukulele
+I made my yard a playground
+Just in case we had a baby
 
-Now I'm crazy for you but not that crazy  
-I'm crazy for you but not that crazy  
+Now I'm crazy for you but not that crazy
+I'm crazy for you but not that crazy
 
-I treated you like radium  
-I treated you like god  
-You were my glass menagerie  
-Did you not find that odd  
+I treated you like radium
+I treated you like god
+You were my glass menagerie
+Did you not find that odd
 
-I dwelt within and went without  
+I dwelt within and went without
 And broke my virgin flesh
-I performed acts of devotion  
-As if you were Ganesh  
+I performed acts of devotion
+As if you were Ganesh
 
-Now I'm crazy for you but not that crazy  
-I'm crazy for you but not that crazy  
+Now I'm crazy for you but not that crazy
+I'm crazy for you but not that crazy

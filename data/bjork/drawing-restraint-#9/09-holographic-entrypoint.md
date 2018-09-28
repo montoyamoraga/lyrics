@@ -1,3 +1,3 @@
-# Holographic Entrypoint  
+# Holographic Entrypoint
 
-(Japanese?)  
+(Japanese?)

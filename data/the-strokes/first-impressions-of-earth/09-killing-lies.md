@@ -1,37 +1,37 @@
-# Killing Lies  
+# Killing Lies
 
-Say a prayer now  
-Don't be scared now  
-You don't want trouble  
-Well we might get some  
+Say a prayer now
+Don't be scared now
+You don't want trouble
+Well we might get some
 
-We might get some  
-It's troublesome  
-But don't you worry  
-You can help me  
+We might get some
+It's troublesome
+But don't you worry
+You can help me
 
-Killing lies  
-Killing lies  
-Killing lies  
-Killing lies  
+Killing lies
+Killing lies
+Killing lies
+Killing lies
 
-First you're worried  
-Then you're hurried  
-Don't think that everything is gonna stay the same  
-That's impossible  
+First you're worried
+Then you're hurried
+Don't think that everything is gonna stay the same
+That's impossible
 
-Before I let you go  
-Let me look at you  
-Don't you worry  
-You will help me  
+Before I let you go
+Let me look at you
+Don't you worry
+You will help me
 
-Killing lies  
-Killing lies  
-Killing lies  
-Killing lies  
+Killing lies
+Killing lies
+Killing lies
+Killing lies
 
-Oh yes I noticed you  
-You are a friend of mine  
-Oh yes I noticed you  
-You are a friend of mine  
-You're mine  
+Oh yes I noticed you
+You are a friend of mine
+Oh yes I noticed you
+You are a friend of mine
+You're mine

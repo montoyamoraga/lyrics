@@ -1,32 +1,32 @@
-# Hunter  
+# Hunter
 
-If travel is searching  
-And home what's been found  
-I'm not stopping  
+If travel is searching
+And home what's been found
+I'm not stopping
 
-I'm going hunting  
-I'm the hunter  
-I'll bring back the woods  
-But I don't know when  
+I'm going hunting
+I'm the hunter
+I'll bring back the woods
+But I don't know when
 
-I thought I could organise freedom  
-How Scandinavian of me  
-You sussed it out didn't you  
+I thought I could organise freedom
+How Scandinavian of me
+You sussed it out didn't you
 
-You could smell it  
-So you left me on my own  
-To complete the mission  
-Now I'm leaving it all behind  
+You could smell it
+So you left me on my own
+To complete the mission
+Now I'm leaving it all behind
 
-I'm going hunting  
-I'm the hunter  
-I'm the hunter  
-I'm going hunting  
+I'm going hunting
+I'm the hunter
+I'm the hunter
+I'm going hunting
 
-I'm the hunter  
-I'm the hunter  
-I'm the hunter  
-I'm the hunter  
-I'm the hunter  
+I'm the hunter
+I'm the hunter
+I'm the hunter
+I'm the hunter
+I'm the hunter
 
-I'm the hunter  
+I'm the hunter

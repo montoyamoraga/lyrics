@@ -1,33 +1,33 @@
-# Electricityscape  
+# Electricityscape
 
-Oh strangers to impress so near  
-Old friends don't realize I'm here  
-I wish two drinks were always in me  
-I'd pretend I had the perfect ear  
+Oh strangers to impress so near
+Old friends don't realize I'm here
+I wish two drinks were always in me
+I'd pretend I had the perfect ear
 
-Take me to the water  
-Make me understand that I was wrong  
+Take me to the water
+Make me understand that I was wrong
 
-For me tomorrow is my first day  
-So please don't tempt me in the wrong way  
-It's almost after midnight  
-I can see the city lights we're here  
+For me tomorrow is my first day
+So please don't tempt me in the wrong way
+It's almost after midnight
+I can see the city lights we're here
 
-Change your mind tonight  
-You belong to the city now  
-And you're closer now I know  
-You belong on the radio  
+Change your mind tonight
+You belong to the city now
+And you're closer now I know
+You belong on the radio
 
-I swear I'll give it back tomorrow  
-But for now I think that I'll just borrow  
-All the chords from that song  
-And all the words from that other song I heard yesterday  
+I swear I'll give it back tomorrow
+But for now I think that I'll just borrow
+All the chords from that song
+And all the words from that other song I heard yesterday
 
-Change your mind tonight  
-You belong to the city now  
-And you're closer now I know  
-You belong on the radio  
+Change your mind tonight
+You belong to the city now
+And you're closer now I know
+You belong on the radio
 
-I will not disturb you  
-I was just returning you  
-The compliment  
+I will not disturb you
+I was just returning you
+The compliment

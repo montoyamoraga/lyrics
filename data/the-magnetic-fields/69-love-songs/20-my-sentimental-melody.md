@@ -1,39 +1,39 @@
-# My Sentimental Melody  
+# My Sentimental Melody
 
-I'm a hopeless romantic  
-You're a terrible flirt  
-Cool and unfazed  
-You're always amazed  
-When someone gets hurt  
+I'm a hopeless romantic
+You're a terrible flirt
+Cool and unfazed
+You're always amazed
+When someone gets hurt
 
-I live on the blue planet  
-That I saw in your eyes  
-But now I can't stay  
-Knowing it's made  
-Of beautiful lies  
+I live on the blue planet
+That I saw in your eyes
+But now I can't stay
+Knowing it's made
+Of beautiful lies
 
-But my sentimental melody  
+But my sentimental melody
 Like a long lost lullaby
-Will ring in your ears  
-Down through the years  
-Bringing a tear to your eye  
-Goodbye  
+Will ring in your ears
+Down through the years
+Bringing a tear to your eye
+Goodbye
 
-Love can kill people can't it  
-Well it still might kill me  
-Each drop of rain  
-Is a glass of champagne  
+Love can kill people can't it
+Well it still might kill me
+Each drop of rain
+Is a glass of champagne
 It's sweet and it's free
 
-When I drink I don't panic  
-When I drink I don't die  
-When I'm far gone  
-It's all just a song  
-Just beautiful lies  
+When I drink I don't panic
+When I drink I don't die
+When I'm far gone
+It's all just a song
+Just beautiful lies
 
-But my sentimental melody  
+But my sentimental melody
 Like a long lost lullaby
-Will ring in your ears  
-Down through the years  
-Bringing a tear to your eye  
-Goodbye  
+Will ring in your ears
+Down through the years
+Bringing a tear to your eye
+Goodbye

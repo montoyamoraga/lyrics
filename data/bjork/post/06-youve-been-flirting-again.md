@@ -1,19 +1,19 @@
-# You've Been Flirting Again  
+# You've Been Flirting Again
 
-All that she said was true  
-All that she said was true  
-Give her some time  
-Give her some space  
-All that she said was true  
+All that she said was true
+All that she said was true
+Give her some time
+Give her some space
+All that she said was true
 
-All that she meant was good  
-All that she meant was good  
-Give her some time  
-Give her some space  
-All that she meant was good  
+All that she meant was good
+All that she meant was good
+Give her some time
+Give her some space
+All that she meant was good
 
-How you reacted was right  
-How you reacted was right  
-Give her some time  
-Give her some space  
-How you reacted was right  
+How you reacted was right
+How you reacted was right
+Give her some time
+Give her some space
+How you reacted was right

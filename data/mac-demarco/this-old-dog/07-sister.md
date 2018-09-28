@@ -1,7 +1,7 @@
-# Sister  
+# Sister
 
-Turns out not every dog has his day  
-So sad so suddenly gone away  
-Wish there were more that I could do  
-Any time you're hearing this  
-Sister know my heart goes out to you  
+Turns out not every dog has his day
+So sad so suddenly gone away
+Wish there were more that I could do
+Any time you're hearing this
+Sister know my heart goes out to you

@@ -1,29 +1,29 @@
-# Ode to Viceroy  
+# Ode to Viceroy
 
-Viceroy  
-Early in the morning  
-Just trying to let the sun in  
-And open up my eyes  
+Viceroy
+Early in the morning
+Just trying to let the sun in
+And open up my eyes
 
-Viceroy  
-As it's getting later  
-Heading for the corner  
-Already running dry  
+Viceroy
+As it's getting later
+Heading for the corner
+Already running dry
 
-And oh don't let me see you crying  
-Cause oh honey I'll smoke you 'til I'm dying  
+And oh don't let me see you crying
+Cause oh honey I'll smoke you 'til I'm dying
 
-Viceroy  
-Don't take me for a fool now  
-I'm only trying to calm down  
-Just trying to keep it cool  
+Viceroy
+Don't take me for a fool now
+I'm only trying to calm down
+Just trying to keep it cool
 
-Viceroy  
-As it's getting later  
-Heading for the corner  
-I'm leaving it to you  
+Viceroy
+As it's getting later
+Heading for the corner
+I'm leaving it to you
 
-And oh don't let me see you crying  
-Cause oh honey I'll smoke you 'til I'm dying  
+And oh don't let me see you crying
+Cause oh honey I'll smoke you 'til I'm dying
 
-There really is nothing quite like it  
+There really is nothing quite like it

@@ -1,66 +1,66 @@
-# Just to Put Me Down  
+# Just to Put Me Down
 
-She couldn't be from up above  
-I never want another one  
-Like her coming around  
+She couldn't be from up above
+I never want another one
+Like her coming around
 
-Picking me up  
-Just to put me down  
+Picking me up
+Just to put me down
 
-She couldn't be from down below  
-For if she was my heart would know  
-And when it knows it just won't go down  
+She couldn't be from down below
+For if she was my heart would know
+And when it knows it just won't go down
 
-Picking me up  
-Just to put me down  
+Picking me up
+Just to put me down
 
-Picking me up  
-Just to put me down  
+Picking me up
+Just to put me down
 
-Picking me up  
-Just to put me down  
+Picking me up
+Just to put me down
 
-Picking me up  
-Just to put me down  
+Picking me up
+Just to put me down
 
-Picking me up  
-Just to put me down  
+Picking me up
+Just to put me down
 
-Picking me up  
-Just to put me down  
+Picking me up
+Just to put me down
 
-Picking me up  
-Just to put me down  
+Picking me up
+Just to put me down
 
-Picking me up  
-Just to put me down  
+Picking me up
+Just to put me down
 
-Picking me up  
-Just to put me down  
+Picking me up
+Just to put me down
 
-Picking me up  
-Just to put me down  
+Picking me up
+Just to put me down
 
-Picking me up  
-Just to put me down  
+Picking me up
+Just to put me down
 
-Picking me up  
-Just to put me down  
+Picking me up
+Just to put me down
 
-Picking me up  
-Just to put me down  
+Picking me up
+Just to put me down
 
-Picking me up  
-Just to put me down  
+Picking me up
+Just to put me down
 
-Picking me up  
-Just to put me down  
+Picking me up
+Just to put me down
 
-Picking me up  
-Just to put me down  
+Picking me up
+Just to put me down
 
-Picking me up  
-Just to put me down  
+Picking me up
+Just to put me down
 
-Picking me up  
-Just to put me down  
+Picking me up
+Just to put me down

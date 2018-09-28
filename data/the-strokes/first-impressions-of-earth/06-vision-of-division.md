@@ -1,69 +1,69 @@
-# Vision of Division  
+# Vision of Division
 
-Sing me a song  
-You could be  
-Tell me a tale  
-Just like me  
+Sing me a song
+You could be
+Tell me a tale
+Just like me
 
-Don't turn it my way  
-Happy and free  
-I'll turn it to shit  
-Happy and free  
+Don't turn it my way
+Happy and free
+I'll turn it to shit
+Happy and free
 
-Oh  
+Oh
 
-All that I do  
-Is wait for you  
+All that I do
+Is wait for you
 
-All that I do  
-Is wait for you  
+All that I do
+Is wait for you
 
-I can't get along  
-With all your friends  
-Don't know how to act  
-That's all there is  
+I can't get along
+With all your friends
+Don't know how to act
+That's all there is
 
-Why do I accept  
-The things you say  
-You know what to change  
-But not in what way  
+Why do I accept
+The things you say
+You know what to change
+But not in what way
 
-How long must I wait  
-How long must I wait  
-How long must I wait  
-How long must I wait  
-How long must I wait  
+How long must I wait
+How long must I wait
+How long must I wait
+How long must I wait
+How long must I wait
 
-I am not you  
-We could have  
-I'm almost trough  
-Great success  
+I am not you
+We could have
+I'm almost trough
+Great success
 
-It's about time  
-Such a success  
-That you came through  
-At no expense  
+It's about time
+Such a success
+That you came through
+At no expense
 
-Oh  
+Oh
 
-All that I do  
-Is wait for you  
+All that I do
+Is wait for you
 
-All that I do  
-Is wait for you  
+All that I do
+Is wait for you
 
-I can't get away  
-From all your friends  
-I'm not coming back  
-That's all there is  
+I can't get away
+From all your friends
+I'm not coming back
+That's all there is
 
-Why do I accept  
-The things you say  
-You know what to change  
-But not in what way  
+Why do I accept
+The things you say
+You know what to change
+But not in what way
 
-How long must I wait  
-How long must I wait  
-How long must I wait  
-How long must I wait  
-How long must I wait  
+How long must I wait
+How long must I wait
+How long must I wait
+How long must I wait
+How long must I wait

@@ -1,92 +1,92 @@
 # OBLIVIUS - Moretti Remix
 
-Unchain me  
-It's not my midnight yet  
-Act like a fox but think like a sheep  
+Unchain me
+It's not my midnight yet
+Act like a fox but think like a sheep
 Wall Street
 
-Unchain me  
-Cause this is my bank's advice  
-We're gonna give it back to you  
-Some other day  
+Unchain me
+Cause this is my bank's advice
+We're gonna give it back to you
+Some other day
 
-Unchain me  
-It's time  
-I know the way uptown  
+Unchain me
+It's time
+I know the way uptown
 
-Unchain me  
-I've waited for the time  
-Get you with your pajamas on  
+Unchain me
+I've waited for the time
+Get you with your pajamas on
 
-Take off from the runway  
-Thinking of a sad day  
-Racing down the highway  
-Looking at me sideways  
+Take off from the runway
+Thinking of a sad day
+Racing down the highway
+Looking at me sideways
 
-What side  
-You standing on  
+What side
+You standing on
 
-What side  
-You standing on  
+What side
+You standing on
 
-What side  
-You standing on  
+What side
+You standing on
 
-What side  
-You standing on  
+What side
+You standing on
 
-Unchain me  
-It's not my midnight yet  
-Act like a fox but think like a sheep  
+Unchain me
+It's not my midnight yet
+Act like a fox but think like a sheep
 Wall Street
 
-Unchain me  
-Cause this is my bank's advice  
-We're gonna give it back to you  
-Some other day  
+Unchain me
+Cause this is my bank's advice
+We're gonna give it back to you
+Some other day
 
-Take off from the runway  
-Thinking of a sad day  
-Playing with his new toys  
-Looking at the sad boys  
+Take off from the runway
+Thinking of a sad day
+Playing with his new toys
+Looking at the sad boys
 
-What side  
-You standing on  
+What side
+You standing on
 
-What side  
-You standing on  
+What side
+You standing on
 
-What side  
-You standing on  
+What side
+You standing on
 
-What side  
-You standing on  
+What side
+You standing on
 
-And we take  
-What we like from them  
-And then say  
-What do you want from me  
+And we take
+What we like from them
+And then say
+What do you want from me
 
-Don't wait so long  
-Wait too long  
-They wait too long  
-I can't stay awake too long  
+Don't wait so long
+Wait too long
+They wait too long
+I can't stay awake too long
 
-You never wait for some  
-Other generation  
-I'll wait somewhere  
-Alone  
-Get it in your head  
-Get out of my way  
+You never wait for some
+Other generation
+I'll wait somewhere
+Alone
+Get it in your head
+Get out of my way
 
-What side  
-You standing on  
+What side
+You standing on
 
-What side  
-You standing on  
+What side
+You standing on
 
-What side  
-You standing on  
+What side
+You standing on
 
-What side  
-You standing on  
+What side
+You standing on

@@ -1,21 +1,21 @@
-# Lonely Highway  
+# Lonely Highway
 
-I'm never going back to Jackson  
-I couldn't bear to show my face  
+I'm never going back to Jackson
+I couldn't bear to show my face
 I nearly killed you with my drinking
-Wouldn't be caught dead in that place  
+Wouldn't be caught dead in that place
 
-Lonely highway only friend  
-You've got me to keep you warm again  
-Lonely highway don't you cry  
-Let me hold you in my arms tonight  
+Lonely highway only friend
+You've got me to keep you warm again
+Lonely highway don't you cry
+Let me hold you in my arms tonight
 
-And as I hurtle down the highway  
-Past the factories and the graves  
-I think of all the years I've wasted  
-I think of all the years I've saved  
+And as I hurtle down the highway
+Past the factories and the graves
+I think of all the years I've wasted
+I think of all the years I've saved
 
-Lonely highway only friend  
-You've got me to keep you warm again  
-Lonely highway don't you cry  
-Let me hold you in my arms tonight  
+Lonely highway only friend
+You've got me to keep you warm again
+Lonely highway don't you cry
+Let me hold you in my arms tonight

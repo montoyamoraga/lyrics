@@ -1,34 +1,34 @@
-# Two Kinds Of Happiness  
+# Two Kinds Of Happiness
 
-Happiness is two different things  
-What you take and then what you bring  
+Happiness is two different things
+What you take and then what you bring
 
-One is pleasure one's discipline  
-One's devotion one's just the ring  
+One is pleasure one's discipline
+One's devotion one's just the ring
 
-Desire and reward  
-Long term and short term joy  
+Desire and reward
+Long term and short term joy
 
-Don't waste your heart  
-Don't waste your heart  
+Don't waste your heart
+Don't waste your heart
 
-One has nothing to do with the other  
-And the world is all cousins not brothers  
+One has nothing to do with the other
+And the world is all cousins not brothers
 
-Hard to take off of my love  
-One's an instant one takes some will  
+Hard to take off of my love
+One's an instant one takes some will
 
-One gives life and one makes you kill  
-One's the means and one's for the end  
+One gives life and one makes you kill
+One's the means and one's for the end
 
-Desire and reward  
-Long term and short term joy  
+Desire and reward
+Long term and short term joy
 
-Don't waste your heart  
-Don't waste your heart  
+Don't waste your heart
+Don't waste your heart
 
-One has nothing to do with the other  
-And the world is all cousins not brothers  
+One has nothing to do with the other
+And the world is all cousins not brothers
 
-Don't you give in  
-You're beginning  
+Don't you give in
+You're beginning

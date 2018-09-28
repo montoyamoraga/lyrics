@@ -1,32 +1,32 @@
-# An Echo A Stain  
+# An Echo A Stain
 
-She touched my arm  
-And smiled  
-One of these days  
-Soon very soon  
+She touched my arm
+And smiled
+One of these days
+Soon very soon
 
-Love you til then  
-Love you til then  
+Love you til then
+Love you til then
 
-Feel my breath  
-On your neck  
-And your heart  
-Will race  
+Feel my breath
+On your neck
+And your heart
+Will race
 
-Don't say no to me  
-You can't say no to me  
-I won't see you  
-Denied  
+Don't say no to me
+You can't say no to me
+I won't see you
+Denied
 
-I'm sorry you saw that  
-I'm sorry he did it  
-An echo  
-A stain  
-A stain  
+I'm sorry you saw that
+I'm sorry he did it
+An echo
+A stain
+A stain
 
-I can't say no to you  
-I can't say no to you  
-Say nothing  
+I can't say no to you
+I can't say no to you
+Say nothing
 
-Free falling  
-Complete  
+Free falling
+Complete

@@ -1,14 +1,14 @@
-# Escalera  
+# Escalera
 
-Una escalera  
-Al infinito  
+Una escalera
+Al infinito
 
-Ay ay  
-Por ahí  
-Ahí ahí  
-Por ahí ahí  
+Ay ay
+Por ahí
+Ahí ahí
+Por ahí ahí
 
-Ahí  
-Ahí  
-Por ahí  
-Ahí  
+Ahí
+Ahí
+Por ahí
+Ahí

@@ -1,3 +1,3 @@
-# Vokuro  
+# Vokuro
 
-(Icelandic)  
+(Icelandic)

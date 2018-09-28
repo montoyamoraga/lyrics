@@ -1,45 +1,45 @@
-# Unravel  
+# Unravel
 
-While you are away  
-My heart comes undone  
-Slowly unravels  
-In a ball of yarn  
+While you are away
+My heart comes undone
+Slowly unravels
+In a ball of yarn
 
-The devil collects it  
-With a grin  
-Our love  
-In a ball of yarn  
+The devil collects it
+With a grin
+Our love
+In a ball of yarn
 
-He'll never return it  
-So when you come back  
-We'll have to make new love  
+He'll never return it
+So when you come back
+We'll have to make new love
 
-He'll never return it  
-So when you come back  
-We'll have to make new love  
+He'll never return it
+So when you come back
+We'll have to make new love
 
-While you are away  
-My heart comes undone  
-Slowly unravels  
-In a ball of yarn  
+While you are away
+My heart comes undone
+Slowly unravels
+In a ball of yarn
 
-The devil collects it  
-With a grin  
-Our love our love  
-In a ball of yarn  
+The devil collects it
+With a grin
+Our love our love
+In a ball of yarn
 
-He'll never return it  
-So when you come back  
-We'll have to make new love  
+He'll never return it
+So when you come back
+We'll have to make new love
 
-He'll never return it  
-So when you come back  
-We'll have to make new love  
+He'll never return it
+So when you come back
+We'll have to make new love
 
-He'll never return it  
-So when you come back  
-We'll have to make new love  
+He'll never return it
+So when you come back
+We'll have to make new love
 
-He'll never return it  
-So when you come back  
-We'll have to make new love  
+He'll never return it
+So when you come back
+We'll have to make new love

@@ -1,29 +1,29 @@
-# Presentimiento  
+# Presentimiento
 
 Te miraba detrás de
-Las cortinas  
+Las cortinas
 
 Tuve un presentimiento y fui
-A tus mejillas  
+A tus mejillas
 
 Me dejaste respirar
-Dentro de  
-Tu oído  
+Dentro de
+Tu oído
 
 Cuando supe que podrías ser
-Te asusté  
+Te asusté
 
 Cuando supe que podrías ser
-Te asusté  
+Te asusté
 
-Me escribiste cartas que  
-No leí  
+Me escribiste cartas que
+No leí
 
-Dibujé tu cara en el  
-Vapor  
+Dibujé tu cara en el
+Vapor
 
-Hasta que un día se fue  
-Se borró  
+Hasta que un día se fue
+Se borró
 
-Hasta que un día se fue  
-Se borró  
+Hasta que un día se fue
+Se borró

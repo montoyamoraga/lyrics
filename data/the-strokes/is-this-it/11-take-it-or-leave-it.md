@@ -1,93 +1,93 @@
-# Take It Or Leave It  
+# Take It Or Leave It
 
-Leave me alone  
-I'm in control  
-I'm in control  
+Leave me alone
+I'm in control
+I'm in control
 
-And girls act too much  
-And boys act too tough  
-Enough is enough  
+And girls act too much
+And boys act too tough
+Enough is enough
 
-We're on the minds  
-Of the other men  
-I know she was  
+We're on the minds
+Of the other men
+I know she was
 
-I said  
-Just take it  
-Or leave it  
+I said
+Just take it
+Or leave it
 
-And take it  
-Or leave it  
+And take it
+Or leave it
 
-And take it  
-Or leave it  
+And take it
+Or leave it
 
-And take it  
-Or leave it  
+And take it
+Or leave it
 
-Oh just take it  
-Or leave it  
+Oh just take it
+Or leave it
 
-And take it  
-Or leave it  
-Oh take it  
+And take it
+Or leave it
+Oh take it
 
-Oh that's right  
+Oh that's right
 
-He's gonna let you down  
-He's gonna let you down  
-He's gonna let you down  
+He's gonna let you down
+He's gonna let you down
+He's gonna let you down
 
-And gonna break your back  
-For a chance  
+And gonna break your back
+For a chance
 
-And gonna steal your friends  
-If he can  
+And gonna steal your friends
+If he can
 
-He's gonna win someday  
+He's gonna win someday
 
-I fell of the track  
-Now I can't go back  
-I'm not like that  
+I fell of the track
+Now I can't go back
+I'm not like that
 
-Boys act too much  
-Girls act too tough  
-Enough is enough  
+Boys act too much
+Girls act too tough
+Enough is enough
 
-We're on the minds  
-Of other girls  
-I know he was  
+We're on the minds
+Of other girls
+I know he was
 
-I said  
-Just take it  
-Or leave it  
+I said
+Just take it
+Or leave it
 
-And take it  
-Or leave it  
+And take it
+Or leave it
 
-And take it  
-Or leave it  
+And take it
+Or leave it
 
-And take it  
-Or leave it  
+And take it
+Or leave it
 
-Oh just take it  
-Or leave it  
+Oh just take it
+Or leave it
 
-And take it  
-Or leave it  
-Oh take it  
+And take it
+Or leave it
+Oh take it
 
-Oh that's right  
+Oh that's right
 
-He's gonna let you down  
-He's gonna let you down  
-He's gonna let you down  
+He's gonna let you down
+He's gonna let you down
+He's gonna let you down
 
-And gonna break your back  
-For a chance  
-And gonna steal your friends  
-If he can  
+And gonna break your back
+For a chance
+And gonna steal your friends
+If he can
 
-He's gonna win someday  
-Oh he will  
+He's gonna win someday
+Oh he will

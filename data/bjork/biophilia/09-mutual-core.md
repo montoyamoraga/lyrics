@@ -1,61 +1,61 @@
-# Mutual Core  
+# Mutual Core
 
-I shuffle around  
-The tectonic plates  
-In my chest  
+I shuffle around
+The tectonic plates
+In my chest
 
-You know  
-I gave it all  
-
-Trying to match  
-Our continents  
-To change seasonal drift  
-To form a mutual core  
-
-As fast as your fingernail grows  
-The Atlantic ridge drifts  
-To counteract distance  
-
-You know  
+You know
 I gave it all
 
-Can you hear  
-The effort  
-Of the magnetic strife  
-Shuffling of columns  
-To form a mutual core  
+Trying to match
+Our continents
+To change seasonal drift
+To form a mutual core
 
-This eruption undoes stagnation  
-You didn't know that I had it in me  
-Withheld your love  
-An unspent capsule  
-I didn't know you had it in you  
+As fast as your fingernail grows
+The Atlantic ridge drifts
+To counteract distance
 
-You hid the key to our continuity  
-I didn't know you had it in you  
-This eruption undoes stagnation  
-You didn't know  
-You didn't know  
+You know
+I gave it all
 
-What you resist persists  
-Nuance makes heat  
-To counteract distance  
-I know you gave it all  
+Can you hear
+The effort
+Of the magnetic strife
+Shuffling of columns
+To form a mutual core
 
-Offered me harmony  
-If things were done your way  
-My Eurasian plate subsumed  
-Forming a mutual core  
+This eruption undoes stagnation
+You didn't know that I had it in me
+Withheld your love
+An unspent capsule
+I didn't know you had it in you
 
-This eruption undoes stagnation  
-You didn't know I had it in me  
-Withheld your love  
-An unspent capsule  
-I didn't know you had it in you  
+You hid the key to our continuity
+I didn't know you had it in you
+This eruption undoes stagnation
+You didn't know
+You didn't know
 
-This eruption undoes stagnation  
-You didn't know I had it in me  
+What you resist persists
+Nuance makes heat
+To counteract distance
+I know you gave it all
 
-This eruption undoes stagnation  
-You didn't know  
-You didn't know  
+Offered me harmony
+If things were done your way
+My Eurasian plate subsumed
+Forming a mutual core
+
+This eruption undoes stagnation
+You didn't know I had it in me
+Withheld your love
+An unspent capsule
+I didn't know you had it in you
+
+This eruption undoes stagnation
+You didn't know I had it in me
+
+This eruption undoes stagnation
+You didn't know
+You didn't know

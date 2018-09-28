@@ -1,3 +1,3 @@
-Midvikudags  
+Midvikudags
 
-(Gibberish)  
+(Gibberish)

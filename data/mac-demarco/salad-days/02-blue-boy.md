@@ -1,41 +1,41 @@
-# Blue Boy  
+# Blue Boy
 
-Blue boy  
-Worried about the world's eyes  
+Blue boy
+Worried about the world's eyes
 
-Worried  
-Every time the sun shines  
+Worried
+Every time the sun shines
 
-Worried  
-About his  
-Haircut  
+Worried
+About his
+Haircut
 
-Calm down  
-Sweetheart  
-Grow up  
+Calm down
+Sweetheart
+Grow up
 
-Blue boy  
-Blue boy  
-Blue boy  
-Blue boy  
+Blue boy
+Blue boy
+Blue boy
+Blue boy
 
-Blue boy  
-Older than the world knows  
+Blue boy
+Older than the world knows
 
-Honey  
-That's the way life goes  
+Honey
+That's the way life goes
 
-No use  
-Acting  
-So tough  
+No use
+Acting
+So tough
 
-Calm down  
-Sweetheart  
-Grow up  
+Calm down
+Sweetheart
+Grow up
 
-Blue boy  
-Blue boy  
-Blue boy  
-Blue boy  
+Blue boy
+Blue boy
+Blue boy
+Blue boy
 
-Hey Tony  
+Hey Tony

@@ -1,55 +1,55 @@
-# Call Me Back  
+# Call Me Back
 
-Wait time is the worst  
-I can hardly sit  
-No one has the time  
-Someone's always late  
+Wait time is the worst
+I can hardly sit
+No one has the time
+Someone's always late
 
-I look for you  
-And you look for me  
+I look for you
+And you look for me
 
-I don't know why  
-I came down  
-I hold your phone  
-Don't wake up  
-I hear a voice  
-In the ground  
+I don't know why
+I came down
+I hold your phone
+Don't wake up
+I hear a voice
+In the ground
 
-Tell me don't tell me  
-The hard part is telling you  
-Something that you would not  
-Like me to tell you  
+Tell me don't tell me
+The hard part is telling you
+Something that you would not
+Like me to tell you
 
-Tell me don't tell me  
-The hard part is telling you  
-Something that you would not  
-Like me to tell you  
+Tell me don't tell me
+The hard part is telling you
+Something that you would not
+Like me to tell you
 
-Wait time is to blame  
-Mapped out of fame's trip  
-We all have the time  
-Someone's always fed  
+Wait time is to blame
+Mapped out of fame's trip
+We all have the time
+Someone's always fed
 
-I look for you  
-And you look away  
+I look for you
+And you look away
 
-I don't know why  
-I came down  
-I hold your phone  
-Don't wake up  
-I hear a voice  
-In the ground  
+I don't know why
+I came down
+I hold your phone
+Don't wake up
+I hear a voice
+In the ground
 
-Waking up is so much fun to do  
+Waking up is so much fun to do
 
-Tell me don't tell me  
-The hard part is telling you  
-Something that you would not  
-Like me to tell you  
+Tell me don't tell me
+The hard part is telling you
+Something that you would not
+Like me to tell you
 
-An eighties movie make out party with you  
+An eighties movie make out party with you
 
-Tell me don't tell me  
-The hard part is telling you  
-Something that you would not  
-Like me to tell you  
+Tell me don't tell me
+The hard part is telling you
+Something that you would not
+Like me to tell you

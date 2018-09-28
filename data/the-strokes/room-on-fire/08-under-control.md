@@ -1,38 +1,38 @@
-# Under Control  
+# Under Control
 
-I don't want to waste your time  
-I don't want to waste your time  
-I just want to say  
-I've got to say  
+I don't want to waste your time
+I don't want to waste your time
+I just want to say
+I've got to say
 
-We worked hard darling  
-We don't have no control  
-We are under control  
+We worked hard darling
+We don't have no control
+We are under control
 
-I don't want to do it your way  
-I don't want to do it your way  
-I don't want to give it to you your way  
-I don't want to know  
+I don't want to do it your way
+I don't want to do it your way
+I don't want to give it to you your way
+I don't want to know
 
-I don't want to change your mind  
-I don't want to change the world  
-I just want to watch it go by  
-I just want to watch you go by  
+I don't want to change your mind
+I don't want to change the world
+I just want to watch it go by
+I just want to watch you go by
 
-We were young darling  
-We don't have no control  
-We are out of control  
+We were young darling
+We don't have no control
+We are out of control
 
-I don't want to do it your way  
-I don't want to do it your way  
-I don't want to give it to you your way  
-I don't want to know  
+I don't want to do it your way
+I don't want to do it your way
+I don't want to give it to you your way
+I don't want to know
 
-I don't want to change your mind  
-I don't want to waste your time  
-I just want to know you're alright  
-I've got to know you're alright  
+I don't want to change your mind
+I don't want to waste your time
+I just want to know you're alright
+I've got to know you're alright
 
-You are young darling  
-For now but not for long  
-Under control  
+You are young darling
+For now but not for long
+Under control

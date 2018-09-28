@@ -1,29 +1,29 @@
-# Big Time Sensuality  
+# Big Time Sensuality
 
-I can sense it  
-Something important  
-Is about to happen  
-It's coming up  
+I can sense it
+Something important
+Is about to happen
+It's coming up
 
-It takes courage to enjoy it  
-The hardcore and the gentle  
-Big time sensuality  
+It takes courage to enjoy it
+The hardcore and the gentle
+Big time sensuality
 
-We just met  
-And I know I'm a bit too intimate  
-But something huge is coming up  
-And we're both included  
+We just met
+And I know I'm a bit too intimate
+But something huge is coming up
+And we're both included
 
-It takes courage to enjoy it  
-The hardcore and the gentle  
-Big time sensuality  
+It takes courage to enjoy it
+The hardcore and the gentle
+Big time sensuality
 
-I don't know my future  
-After this weekend  
-And I don't want to  
+I don't know my future
+After this weekend
+And I don't want to
 
-It takes courage to enjoy it  
-The hardcore and the gentle  
-Big time sensuality  
+It takes courage to enjoy it
+The hardcore and the gentle
+Big time sensuality
 
-Sensuality  
+Sensuality

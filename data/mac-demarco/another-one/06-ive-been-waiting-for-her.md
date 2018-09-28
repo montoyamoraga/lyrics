@@ -1,33 +1,33 @@
-# I've Been Waiting for Her  
+# I've Been Waiting for Her
 
-Give up my life for the rhythm  
-For the beat of a heart  
-Like hers  
+Give up my life for the rhythm
+For the beat of a heart
+Like hers
 
-Start it over to the rhythm  
-To the beat of a heart  
-Like hers  
+Start it over to the rhythm
+To the beat of a heart
+Like hers
 
-And believe me  
-I've been waiting for her  
-Believe me  
-I've been waiting for her  
+And believe me
+I've been waiting for her
+Believe me
+I've been waiting for her
 
-Listen closely for the rhythm  
-To the beat of a heart  
-Like hers  
+Listen closely for the rhythm
+To the beat of a heart
+Like hers
 
-Could I quit it  
-Start it over  
-To the beat of a heart  
-Like hers  
+Could I quit it
+Start it over
+To the beat of a heart
+Like hers
 
-And believe me  
-I've been waiting for her  
-Believe me  
-I've been waiting for her  
+And believe me
+I've been waiting for her
+Believe me
+I've been waiting for her
 
-Believe me  
-I've been waiting for her  
-Believe me  
-I've been waiting for her  
+Believe me
+I've been waiting for her
+Believe me
+I've been waiting for her

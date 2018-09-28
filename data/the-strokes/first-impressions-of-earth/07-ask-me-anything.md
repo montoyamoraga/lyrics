@@ -1,51 +1,51 @@
-# Ask Me Anything  
+# Ask Me Anything
 
-Right wrong what to do  
-Someday it will come to you  
-Hostile Indians  
-We named summer camp for you  
+Right wrong what to do
+Someday it will come to you
+Hostile Indians
+We named summer camp for you
 
-I've got nothing to say  
-I've got nothing to say  
-I've got nothing to say  
-I've got nothing to say  
+I've got nothing to say
+I've got nothing to say
+I've got nothing to say
+I've got nothing to say
 
-I've got nothing to say  
-I've got nothing to say  
-I've got nothing to say  
-I'm in utter dismay  
-I've got nothing to say  
+I've got nothing to say
+I've got nothing to say
+I've got nothing to say
+I'm in utter dismay
+I've got nothing to say
 
-Harmless children  
-We named our soldiers after you  
-Don't be a coconut  
-God is trying to talk to you  
-We could drag it out  
-But that's for other bands to do  
+Harmless children
+We named our soldiers after you
+Don't be a coconut
+God is trying to talk to you
+We could drag it out
+But that's for other bands to do
 
-I've got nothing to say  
-I've got nothing to say  
-I've got nothing to say  
-I've got nothing to say  
+I've got nothing to say
+I've got nothing to say
+I've got nothing to say
+I've got nothing to say
 
-I've got nothing to give  
-I've got no reason to live  
-But I will fight to survive  
-I've got nothing to hide  
-Wish I wasn't so shy  
+I've got nothing to give
+I've got no reason to live
+But I will fight to survive
+I've got nothing to hide
+Wish I wasn't so shy
 
-I'd like to watch  
-I'd like to read  
-I'd like a part  
-I'd like to read  
+I'd like to watch
+I'd like to read
+I'd like a part
+I'd like to read
 
-But I've got nothing to say  
-I've got nothing to say  
-I've got nothing to say  
-I've got nothing to say  
+But I've got nothing to say
+I've got nothing to say
+I've got nothing to say
+I've got nothing to say
 
-I've got nothing to give  
-I've got no reason to live  
-Oh I'll kill to survive  
-I've got nothing to hide  
-Wish I wasn't so shy  
+I've got nothing to give
+I've got no reason to live
+Oh I'll kill to survive
+I've got nothing to hide
+Wish I wasn't so shy

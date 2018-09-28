@@ -1,35 +1,35 @@
-# The Way You'd Love Her  
+# The Way You'd Love Her
 
-How's your heart been beating  
-How's your skin been keeping  
-How's the dream been going  
-Since you've came back home this time  
+How's your heart been beating
+How's your skin been keeping
+How's the dream been going
+Since you've came back home this time
 
-You left her out there somewhere  
-Told her how you feel but  
-Never really got your chance to show her what it  
-Really means to love her  
+You left her out there somewhere
+Told her how you feel but
+Never really got your chance to show her what it
+Really means to love her
 
-The way you'd love her  
-The way you'd love to love her  
-The way you'd love her  
+The way you'd love her
+The way you'd love to love her
+The way you'd love her
 
-Closer to the ending  
-She's still out pretending  
-Prying eyes won't recognize  
-The way she feels about him  
+Closer to the ending
+She's still out pretending
+Prying eyes won't recognize
+The way she feels about him
 
-She'll just go on living  
-The river keeps on rolling   
-Knowing all the time she'll never understand just  
-What it means to love her  
+She'll just go on living
+The river keeps on rolling 
+Knowing all the time she'll never understand just
+What it means to love her
 
-The way you'd love her  
-The way you'd love to love her  
-The way you'd love her  
+The way you'd love her
+The way you'd love to love her
+The way you'd love her
 
-Love her  
+Love her
 
-The way you'd love her  
-The way you'd love to love her  
-The way you'd love her  
+The way you'd love her
+The way you'd love to love her
+The way you'd love her

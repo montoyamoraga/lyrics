@@ -1,21 +1,21 @@
-# The Anchor Song  
+# The Anchor Song
 
-I live by the ocean  
-And during the night  
-I dive into it  
-Down to the bottom  
+I live by the ocean
+And during the night
+I dive into it
+Down to the bottom
 
-Underneath all currents  
-And drop my anchor  
-And this is where I'm staying  
-This is my home  
+Underneath all currents
+And drop my anchor
+And this is where I'm staying
+This is my home
 
-I live by the ocean  
-And during the night  
-I dive into it  
-Down to the bottom  
+I live by the ocean
+And during the night
+I dive into it
+Down to the bottom
 
-Underneath all currents  
-And drop my anchor  
-And this is where I'm staying  
-This is my home  
+Underneath all currents
+And drop my anchor
+And this is where I'm staying
+This is my home

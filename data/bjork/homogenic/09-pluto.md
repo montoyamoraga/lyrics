@@ -1,11 +1,11 @@
-# Pluto  
+# Pluto
 
-Excuse me  
-But I just have to  
-Explode  
+Excuse me
+But I just have to
+Explode
 
-Explode this body  
-Off me  
+Explode this body
+Off me
 
 Ooh
 Ooh
@@ -13,11 +13,11 @@ Ooh
 Ooh
 Ooh
 
-I'll be brand new  
-Brand new tomorrow  
+I'll be brand new
+Brand new tomorrow
 
-A little bit tired  
-But brand new  
+A little bit tired
+But brand new
 
 Ooh
 Ooh
