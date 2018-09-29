@@ -52,7 +52,7 @@ All the rights belong to the authors.
 * Interpol - Turn On the Bright Lights (2002)
 * Interpol - Antics (2004)
 * Interpol - Our Love To Admire (2007)
-* ~~Interpol - Interpol (2010)~~
+* Interpol - Interpol (2010)
 * ~~Interpol - El Pintor (2014)~~
 * ~~Interpol - Marauder( 2018)~~
 * Javiera Mena - Esquemas Juveniles (2006)
