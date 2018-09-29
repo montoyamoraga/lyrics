@@ -104,6 +104,7 @@ Artists that will be included:
 * Bob Dylan
 * The Breeders
 * Café Tacvba
+* Camilo Sesto
 * Charly García
 * Colombina Parra
 * Cristóbal Briceño
@@ -130,8 +131,11 @@ Artists that will be included:
 * Los Mil Jinetes
 * Los Prisioneros
 * Lou Reed
+* Luis Miguel
 * Madonna
+* Mecano
 * The Moldy Peaches
+* Molotov
 * Natalia Lafourcade
 * Nirvana
 * Peaches
