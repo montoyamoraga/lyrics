@@ -45,6 +45,12 @@ All the rights belong to the authors.
 * Gepe - GP (2012)
 * Gepe - Estilo Libre (2014)
 * Gepe - Ciencia Exacta (2017)
+* ~~Interpol - Turn On the Bright Lights (2002)~~
+* ~~Interpol - Antics (2004)~~
+* ~~Interpol - Our Love To Admire (2007)~~
+* ~~Interpol - Interpol (2010)~~
+* ~~Interpol - El Pintor (2014)~~
+* ~~Interpol - Marauder( 2018)~~
 * Javiera Mena - Esquemas Juveniles (2006)
 * Javiera Mena - Mena (2010)
 * Javiera Mena - Primeras Composiciones (2000-2003) (2013)
@@ -119,7 +125,8 @@ Artists that will be included:
 * Future Bible Heroes
 * The Gothic Archies
 * Gustavo Cerati
-* Interpol
+* Jack White
+* J Mascis
 * Joan Manuel Serrat
 * Jorge González
 * Joy Division
