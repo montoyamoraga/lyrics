@@ -54,7 +54,7 @@ All the rights belong to the authors.
 * Interpol - Our Love To Admire (2007)
 * Interpol - Interpol (2010)
 * Interpol - El Pintor (2014)
-* ~~Interpol - Marauder( 2018)~~
+* Interpol - Marauder (2018)
 * Javiera Mena - Esquemas Juveniles (2006)
 * Javiera Mena - Mena (2010)
 * Javiera Mena - Primeras Composiciones (2000-2003) (2013)
