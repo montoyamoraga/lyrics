@@ -46,8 +46,8 @@ All the rights belong to the authors.
 * Gepe - Estilo Libre (2014)
 * Gepe - Ciencia Exacta (2017)
 * Interpol - Turn On the Bright Lights (2002)
-* ~~Interpol - Antics (2004)~~
-* ~~Interpol - Our Love To Admire (2007)~~
+* Interpol - Antics (2004)
+* Interpol - Our Love To Admire (2007)
 * ~~Interpol - Interpol (2010)~~
 * ~~Interpol - El Pintor (2014)~~
 * ~~Interpol - Marauder( 2018)~~
