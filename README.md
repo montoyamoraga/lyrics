@@ -12,10 +12,9 @@ All the rights belong to the authors.
 * Filenames words are separated by dashes (-)
 * One folder per artist
 * Inside of every artist folder, one folder per release
-* Inside of every release folder, one markdown file (.md) per song
+* Inside of every release folder, one text file (.txt) per song
 * The files inside of every release folder are numbered, 1-based indexing
-* In every file, the first line is the title of the song
-* Every line ends with two spaces
+* In every file, the first line is the title of the song, marked by an asterisk (#)
 
 ## Database
 
