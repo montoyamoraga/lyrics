@@ -37,7 +37,7 @@ All the rights belong to the authors.
 * Björk - Biophilia (2011)
 * Björk - Vulnicura (2015)
 * Björk - Utopia (2017)
-* ~~Dënver - Totoral (2008)~~
+* Dënver - Totoral (2008)
 * ~~Dënver - Música, Gramática, Gimnasia (2010)~~
 * ~~Dënver - Fuera de Campo (2013)~~
 * ~~Dënver - Sangre Cita (2015)~~
