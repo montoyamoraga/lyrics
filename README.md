@@ -40,7 +40,7 @@ All the rights belong to the authors.
 * Dënver - Totoral (2008)
 * Dënver - Música, Gramática, Gimnasia (2010)
 * Dënver - Fuera de Campo (2013)
-* ~~Dënver - Sangre Cita (2015)~~
+* Dënver - Sangre Cita (2015)
 * Gepe - 5x5 EP (2004)
 * Gepe - Gepinto (2006)
 * Gepe - Hungría (2007)
