@@ -21,6 +21,7 @@ All the rights belong to the authors.
 * Álex Anwandter - Odisea (2010)
 * Álex Anwandter - Rebeldes (2011)
 * Álex Anwandter - Amiga (2016)
+* Álex Anwandter - Latinoamericana (2018)
 * Álex y Daniel - Álex y Daniel (2013)
 * Ases Falsos - Juventud Americana (2012)
 * Ases Falsos - Conducción (2014)
