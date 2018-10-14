@@ -79,6 +79,13 @@ All the rights belong to the authors.
 * The Magnetic Fields - Realism (2010)
 * The Magnetic Fields - Love at the Bottom of the Sea (2012)
 * The Magnetic Fields - 50 Song Memoir (2017)
+* ~~Pixies - Come On Pilgrim EP (1987)~~
+* ~~Pixies - Surfer Rosa (1988)~~
+* ~~Pixies - Doolittle (1989)~~
+* ~~Pixies - Bossanova (1990)~~
+* ~~Pixies - Trompe Le Monde (1991)~~
+* ~~Pixies - Indie Cindy (2014)~~
+* ~~Pixies - Head Carrier (2016)~~
 * Prehistöricos - La Orquesta Oculta (2010)
 * Prehistöricos - Nuestro Día Vendrá (2014)
 * Prehistöricos - La Velocidad de las Plantas (2016)
@@ -90,6 +97,23 @@ All the rights belong to the authors.
 * The Strokes - Angles (2011)
 * The Strokes - Comedown Machine (2013)
 * The Strokes - Future Present Past (2016)
+* ~~St. Vincent - Marry Me (2007)~~
+* ~~St. Vincent - Actor (2009)~~
+* ~~St. Vincent - Strange Mercy (2011)~~
+* ~~St. Vincent - St. Vincent (2014)~~
+* ~~St. Vincent - Masseduction (2017)~~
+* ~~St. Vincent - MassEducation (2018)~~
+* ~~Weezer - Weezer (The Blue Album) (1994)~~
+* ~~Weezer - Pinkerton (1996)~~
+* ~~Weezer - Weezer (The Green Album) (2001)~~
+* ~~Weezer - Maladroit (2002)~~
+* ~~Weezer - Make Believe (2005)~~
+* ~~Weezer - Weezer (The Red Album) (2009)~~
+* ~~Weezer - Raditude (2009)~~
+* ~~Weezer - Hurley (2010)~~
+* ~~Weezer - Everything Will Be Alright In The End (2014)~~
+* ~~Weezer - Weezer (The White Album) (2016)~~
+* ~~Weezer - Pacific Daydream (2017)~~
 * The xx - xx (2009)
 * The xx - Coexist (2012)
 * The xx - I See You (2017)
@@ -152,7 +176,6 @@ Artists that will be included:
 * Natalia Lafourcade
 * Nirvana
 * Peaches
-* Pixies
 * Princess Nokia
 * Radiohead
 * Regina Spektor
@@ -160,7 +183,6 @@ Artists that will be included:
 * Rihanna
 * Silvio Rodríguez
 * Soda Stereo
-* St. Vincent
 * Suicide
 * Taller Dejao
 * Teleradio Donoso
@@ -174,7 +196,6 @@ Artists that will be included:
 * Violeta Parra
 * Virus
 * The Voidz
-* Weezer
 * The White Stripes
 
 ## License
