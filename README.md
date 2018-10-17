@@ -103,6 +103,16 @@ All the rights belong to the authors.
 * ~~St. Vincent - St. Vincent (2014)~~
 * ~~St. Vincent - Masseduction (2017)~~
 * ~~St. Vincent - MassEducation (2018)~~
+* ~~Talking Heads - Talking Heads: 77 (1977)~~
+* ~~Talking Heads - More Songs About Buildings And Food (1978)~~
+* ~~Talking Heads - Fear Of Music (1979)~~
+* ~~Talking Heads - Remain In Light (1980)~~
+* ~~Talking Heads - The Name Of This Band Is Talking Heads (1982)~~
+* ~~Talking Heads - Speaking In Tongues (1983)~~
+* ~~Talking Heads - Stop Making Sense (1984)~~
+* ~~Talking Heads - Little Creatures (1985)~~
+* ~~Talking Heads - True Stories (1986)~~
+* ~~Talking Heads - Naked (1988)~~
 * ~~Weezer - Weezer (The Blue Album) (1994)~~
 * ~~Weezer - Pinkerton (1996)~~
 * ~~Weezer - Weezer (The Green Album) (2001)~~
@@ -137,6 +147,7 @@ Artists that will be included:
 * Best Coast
 * Bikini Kill
 * Black Francis
+* Blur
 * Bob Dylan
 * The Breeders
 * Café Tacvba
@@ -145,7 +156,9 @@ Artists that will be included:
 * Colombina Parra
 * Cristóbal Briceño
 * The Cure
+* Damon Albarn
 * David Bowie
+* David Byrne
 * Diego Lorenzini
 * Dinosaur Jr
 * Los Ex
@@ -153,7 +166,9 @@ Artists that will be included:
 * Fother Muckers
 * Frank Black
 * Future Bible Heroes
+* Gorillaz
 * The Gothic Archies
+* Graham Coxon
 * Gustavo Cerati
 * Jack White
 * J Mascis
