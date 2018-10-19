@@ -98,7 +98,7 @@ All the rights belong to the authors.
 * The Strokes - Comedown Machine (2013)
 * The Strokes - Future Present Past (2016)
 * St. Vincent - Marry Me (2007)
-* ~~St. Vincent - Actor (2009)~~
+* St. Vincent - Actor (2009)
 * ~~St. Vincent - Strange Mercy (2011)~~
 * ~~St. Vincent - St. Vincent (2014)~~
 * ~~St. Vincent - Masseduction (2017)~~
@@ -202,6 +202,7 @@ Artists that will be included:
 * Taller Dejao
 * Teleradio Donoso
 * Television
+* Thom Yorke
 * Los Tres
 * Tus Amigos Nuevos
 * Vampire Weekend
