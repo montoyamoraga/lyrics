@@ -38,6 +38,13 @@ All the rights belong to the authors.
 * Björk - Biophilia (2011)
 * Björk - Vulnicura (2015)
 * Björk - Utopia (2017)
+* ~~Los Bunkers - Los Bunkers (2001)~~
+* ~~Los Bunkers - Canción De Lejos (2002)~~
+* ~~Los Bunkers - La Culpa (2003) ~~
+* ~~Los Bunkers - Vida De Perros (2005)~~
+* ~~Los Bunkers - Barrio Estación (2008)~~
+* ~~Los Bunkers - Música Libre (2010)~~
+* ~~Los Bunkers - La Velocidad De La Luz (2013)~~
 * Dënver - Totoral (2008)
 * Dënver - Música, Gramática, Gimnasia (2010)
 * Dënver - Fuera de Campo (2013)
@@ -99,7 +106,7 @@ All the rights belong to the authors.
 * The Strokes - Future Present Past (2016)
 * St. Vincent - Marry Me (2007)
 * St. Vincent - Actor (2009)
-* ~~St. Vincent - Strange Mercy (2011)~~
+* St. Vincent - Strange Mercy (2011)
 * ~~St. Vincent - St. Vincent (2014)~~
 * ~~St. Vincent - Masseduction (2017)~~
 * ~~St. Vincent - MassEducation (2018)~~
@@ -175,6 +182,7 @@ Artists that will be included:
 * Joan Manuel Serrat
 * Jorge González
 * Joy Division
+* Juan Gabriel
 * Julian Casablancas
 * Kendrick Lamar
 * Kings Of Convenience
