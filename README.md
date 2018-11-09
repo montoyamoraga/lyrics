@@ -109,7 +109,7 @@ All the rights belong to the authors.
 * St. Vincent - Actor (2009)
 * St. Vincent - Strange Mercy (2011)
 * St. Vincent - St. Vincent (2014)
-* ~~St. Vincent - Masseduction (2017)~~
+* St. Vincent - Masseduction (2017)
 * ~~St. Vincent - MassEducation (2018)~~
 * ~~Talking Heads - Talking Heads: 77 (1977)~~
 * ~~Talking Heads - More Songs About Buildings And Food (1978)~~
