@@ -27,6 +27,22 @@ All the rights belong to the authors.
 * Ases Falsos - Conducción (2014)
 * Ases Falsos - El Hombre Puede (2016)
 * Ases Falsos - Mala Fama (2018)
+* ~~Babasónicos - Pasto (1992)~~
+* ~~Babasónicos - Trance Zomba (1994)~~
+* ~~Babasónicos - Dopádromo (1996)~~
+* ~~Babasónicos - Babasónica (1997)~~
+* ~~Babasónicos - Vórtice Marxista (1998)~~
+* ~~Babasónicos - Miami (1999)~~
+* ~~Babasónicos - Vedette (2000)~~
+* ~~Babasónicos - Groncho (2000)~~
+* ~~Babasónicos - Jessico (2001)~~
+* ~~Babasónicos - Infame (2003)~~
+* ~~Babasónicos - Anoche (2005)~~
+* ~~Babasónicos - Mucho (2008)~~
+* ~~Babasónicos - Mucho + (2009)~~
+* ~~Babasónicos - A propósito (2011)~~
+* ~~Babasónicos - Romantisísmico (2013)~~
+* ~~Babasónicos - Discutible (2018)~~
 * Björk - Debut (1993)
 * Björk - Post (1995)
 * Björk - Homogenic (1997)
@@ -149,7 +165,6 @@ Artists that will be included:
 
 * The 6ths
 * Arcade Fire
-* Babasónicos
 * Beach House
 * Beastie Boys
 * Best Coast
