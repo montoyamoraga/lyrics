@@ -56,7 +56,7 @@ All the rights belong to the authors.
 * Björk - Utopia (2017)
 * ~~Los Bunkers - Los Bunkers (2001)~~
 * ~~Los Bunkers - Canción De Lejos (2002)~~
-* ~~Los Bunkers - La Culpa (2003) ~~
+* ~~Los Bunkers - La Culpa (2003)~~
 * ~~Los Bunkers - Vida De Perros (2005)~~
 * ~~Los Bunkers - Barrio Estación (2008)~~
 * ~~Los Bunkers - Música Libre (2010)~~
@@ -66,6 +66,12 @@ All the rights belong to the authors.
 * Dënver - Música, Gramática, Gimnasia (2010)
 * Dënver - Fuera de Campo (2013)
 * Dënver - Sangre Cita (2015)
+* Dúo Niágara - Dúo Niágara (2015)
+* ~~Fother Muckers - No Soy Uno ()~~
+* ~~Fother Muckers - ()~~
+* ~~Fother Muckers - ()~~
+* ~~Fother Muckers - ()~~
+* ~~Fother Muckers - ()~~
 * Gepe - 5x5 EP (2004)
 * Gepe - Gepinto (2006)
 * Gepe - Hungría (2007)
@@ -128,7 +134,7 @@ All the rights belong to the authors.
 * St. Vincent - Masseduction (2017)
 * St. Vincent - MassEducation (2018)
 * Talking Heads - Talking Heads: 77 (1977)
-* ~~Talking Heads - More Songs About Buildings And Food (1978)~~
+* Talking Heads - More Songs About Buildings And Food (1978)
 * ~~Talking Heads - Fear Of Music (1979)~~
 * ~~Talking Heads - Remain In Light (1980)~~
 * ~~Talking Heads - The Name Of This Band Is Talking Heads (1982)~~
