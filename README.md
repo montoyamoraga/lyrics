@@ -67,11 +67,13 @@ All the rights belong to the authors.
 * Dënver - Fuera de Campo (2013)
 * Dënver - Sangre Cita (2015)
 * Dúo Niágara - Dúo Niágara (2015)
-* ~~Fother Muckers - No Soy Uno ()~~
-* ~~Fother Muckers - ()~~
-* ~~Fother Muckers - ()~~
-* ~~Fother Muckers - ()~~
-* ~~Fother Muckers - ()~~
+* Fother Muckers - No Soy Uno (2007)
+* Fother Muckers - Justo Y Necesario (2008)
+* Fother Muckers - Una Navidad Con Los Fother Muckers EP (2008)
+* Fother Muckers - Tercer Piso Domingo Santo (2009)
+* ~~Fother Muckers - Si No Tienes Nada Que Decir Entonces Calla (2009)~~
+* ~~Fother Muckers - El Paisaje Salvaje (2010)~~
+* ~~Fother Muckers - Entrega Tu Espíritu: Muerte A Los Fother Muckers EP (2011)~~
 * Gepe - 5x5 EP (2004)
 * Gepe - Gepinto (2006)
 * Gepe - Hungría (2007)
@@ -192,7 +194,6 @@ Artists that will be included:
 * Dinosaur Jr
 * Los Ex
 * Flaming Lips
-* Fother Muckers
 * Frank Black
 * Future Bible Heroes
 * Gorillaz
