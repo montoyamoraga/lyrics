@@ -72,7 +72,7 @@ All the rights belong to the authors.
 * Fother Muckers - Una Navidad Con Los Fother Muckers EP (2008)
 * Fother Muckers - Tercer Piso Domingo Santo (2009)
 * Fother Muckers - Si No Tienes Nada Que Decir Entonces Calla (2009)
-* ~~Fother Muckers - El Paisaje Salvaje (2010)~~
+* Fother Muckers - El Paisaje Salvaje (2010)
 * ~~Fother Muckers - Entrega Tu Espíritu: Muerte A Los Fother Muckers EP (2011)~~
 * Gepe - 5x5 EP (2004)
 * Gepe - Gepinto (2006)
@@ -136,7 +136,7 @@ All the rights belong to the authors.
 * St. Vincent - Masseduction (2017)
 * St. Vincent - MassEducation (2018)
 * Talking Heads - Talking Heads: 77 (1977)
-* Talking Heads - More Songs About Buildings And Food (1978)
+* ~~Talking Heads - More Songs About Buildings And Food (1978)~~
 * ~~Talking Heads - Fear Of Music (1979)~~
 * ~~Talking Heads - Remain In Light (1980)~~
 * ~~Talking Heads - The Name Of This Band Is Talking Heads (1982)~~
