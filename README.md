@@ -73,7 +73,7 @@ All the rights belong to the authors.
 * Fother Muckers - Tercer Piso Domingo Santo (2009)
 * Fother Muckers - Si No Tienes Nada Que Decir Entonces Calla (2009)
 * Fother Muckers - El Paisaje Salvaje (2010)
-* ~~Fother Muckers - Entrega Tu Espíritu: Muerte A Los Fother Muckers EP (2011)~~
+* Fother Muckers - Entrega Tu Espíritu: Muerte A Los Fother Muckers EP (2011)
 * Gepe - 5x5 EP (2004)
 * Gepe - Gepinto (2006)
 * Gepe - Hungría (2007)
