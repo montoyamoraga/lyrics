@@ -61,6 +61,7 @@ All the rights belong to the authors.
 * ~~Los Bunkers - Barrio Estación (2008)~~
 * ~~Los Bunkers - Música Libre (2010)~~
 * ~~Los Bunkers - La Velocidad De La Luz (2013)~~
+* Las Chaquetas Amarillas - Diez Primeras Canciones (2013)
 * David Byrne, St. Vincent - Love This Giant (2012)
 * Dënver - Totoral (2008)
 * Dënver - Música, Gramática, Gimnasia (2010)
