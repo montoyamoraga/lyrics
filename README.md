@@ -62,6 +62,7 @@ All the rights belong to the authors.
 * ~~Los Bunkers - Música Libre (2010)~~
 * ~~Los Bunkers - La Velocidad De La Luz (2013)~~
 * Las Chaquetas Amarillas - Diez Primeras Canciones (2013)
+* Las Chaquetas Amarillas - Salen Otras Diez (2018)
 * David Byrne, St. Vincent - Love This Giant (2012)
 * Dënver - Totoral (2008)
 * Dënver - Música, Gramática, Gimnasia (2010)
