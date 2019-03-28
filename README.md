@@ -96,6 +96,34 @@ All the rights belong to the authors.
 * Javiera Mena - Primeras Composiciones (2000-2003) (2013)
 * Javiera Mena - Otra Era (2014)
 * Javiera Mena - Espejo (2018)
+* Lou Reed - Lou Reed (1972)
+* Lou Reed - Transformer (1972)
+* Lou Reed - Berlin (1973)
+* ~~Lou Reed - Rock n Roll Animal (1974)~~
+* ~~Lou Reed - Sally Can't Dance (1974)~~
+* ~~Lou Reed - Lou Reed Live (1975)~~
+* ~~Lou Reed - Metal Machine Music (1975)~~
+* ~~Lou Reed - Coney Island Baby (1976)~~
+* ~~Lou Reed - Rock And Roll Heart (1976)~~
+* ~~Lou Reed - Street Hassle (1978)~~
+* ~~Lou Reed - Live: Take No Prisoners (1978)~~
+* ~~Lou Reed - The Bells (1979)~~
+* ~~Lou Reed - Growing Up In Public (1980)~~
+* ~~Lou Reed - The Blue Mask (1982)~~
+* ~~Lou Reed - Legendary Hearts (1983)~~
+* ~~Lou Reed - Live In Italy (1984)~~
+* ~~Lou Reed - New Sensations (1984)~~
+* ~~Lou Reed - City Lights (1985)~~
+* ~~Lou Reed - Mistrial (1986)~~
+* ~~Lou Reed - New York (1989)~~
+* ~~Lou Reed - Magic And Loss (1992)~~
+* ~~Lou Reed - Set The Twilight Reeling (1996)~~
+* ~~Lou Reed - Perfect Night: Live In London (1998)~~
+* ~~Lou Reed - Ecstasy (2000)~~
+* ~~Lou Reed - American Poet (2001)~~
+* ~~Lou Reed - The Raven (2003)~~
+* ~~Lou Reed - Animal Serenade (2004)~~
+* ~~Lou Reed - Hudson River Wind Meditations (2007)~~
 * Mac DeMarco - Rock and Roll Night Club (2012)
 * Mac DeMarco - 2 (2012)
 * Mac DeMarco - Salad Days (2014)
@@ -215,7 +243,6 @@ Artists that will be included:
 * LCD Soundsystem
 * Los Mil Jinetes
 * Los Prisioneros
-* Lou Reed
 * Luis Miguel
 * Madonna
 * Mecano
@@ -224,6 +251,7 @@ Artists that will be included:
 * Natalia Lafourcade
 * Nirvana
 * Peaches
+* Primus
 * Princess Nokia
 * Radiohead
 * Regina Spektor
