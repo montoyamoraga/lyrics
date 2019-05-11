@@ -54,9 +54,9 @@ All the rights belong to the authors.
 * Björk - Biophilia (2011)
 * Björk - Vulnicura (2015)
 * Björk - Utopia (2017)
-* ~~Los Bunkers - Los Bunkers (2001)~~
-* ~~Los Bunkers - Canción De Lejos (2002)~~
-* ~~Los Bunkers - La Culpa (2003)~~
+* Los Bunkers - Los Bunkers (2001)
+* Los Bunkers - Canción De Lejos (2002)
+* Los Bunkers - La Culpa (2003)
 * ~~Los Bunkers - Vida De Perros (2005)~~
 * ~~Los Bunkers - Barrio Estación (2008)~~
 * ~~Los Bunkers - Música Libre (2010)~~
@@ -175,17 +175,19 @@ All the rights belong to the authors.
 * ~~Talking Heads - Little Creatures (1985)~~
 * ~~Talking Heads - True Stories (1986)~~
 * ~~Talking Heads - Naked (1988)~~
-* ~~Weezer - Weezer (The Blue Album) (1994)~~
+* ~~Weezer - Weezer (Blue Album) (1994)~~
 * ~~Weezer - Pinkerton (1996)~~
-* ~~Weezer - Weezer (The Green Album) (2001)~~
+* ~~Weezer - Weezer (Green Album) (2001)~~
 * ~~Weezer - Maladroit (2002)~~
 * ~~Weezer - Make Believe (2005)~~
-* ~~Weezer - Weezer (The Red Album) (2009)~~
+* ~~Weezer - Weezer (Red Album) (2009)~~
 * ~~Weezer - Raditude (2009)~~
 * ~~Weezer - Hurley (2010)~~
 * ~~Weezer - Everything Will Be Alright In The End (2014)~~
-* ~~Weezer - Weezer (The White Album) (2016)~~
+* ~~Weezer - Weezer (White Album) (2016)~~
 * ~~Weezer - Pacific Daydream (2017)~~
+* ~~Weezer - Weezer (Teal Album) (2019)~~
+* ~~Weezer - Weezer (Black Album) (2019)~~
 * The xx - xx (2009)
 * The xx - Coexist (2012)
 * The xx - I See You (2017)
