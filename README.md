@@ -129,7 +129,7 @@ All the rights belong to the authors.
 * Mac DeMarco - Salad Days (2014)
 * Mac DeMarco - Another One (2015)
 * Mac DeMarco - This Old Dog (2017)
-* ~~Mac DeMarco - Here Comes The Cowboy (2019)~~
+* Mac DeMarco - Here Comes The Cowboy (2019)
 * The Magnetic Fields - Distant Plastic Trees (1991)
 * The Magnetic Fields - The Wayward Bus (1992)
 * The Magnetic Fields - The House of Tomorrow EP (1992)
