@@ -58,7 +58,7 @@ All the rights belong to the authors.
 * Los Bunkers - Canción De Lejos (2002)
 * Los Bunkers - La Culpa (2003)
 * Los Bunkers - Vida De Perros (2005)
-* ~~Los Bunkers - Barrio Estación (2008)~~
+* Los Bunkers - Barrio Estación (2008)
 * ~~Los Bunkers - Música Libre (2010)~~
 * ~~Los Bunkers - La Velocidad De La Luz (2013)~~
 * Las Chaquetas Amarillas - Diez Primeras Canciones (2013)
