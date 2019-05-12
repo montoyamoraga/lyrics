@@ -60,7 +60,7 @@ All the rights belong to the authors.
 * Los Bunkers - Vida De Perros (2005)
 * Los Bunkers - Barrio Estación (2008)
 * Los Bunkers - Música Libre (2010)
-* ~~Los Bunkers - La Velocidad De La Luz (2013)~~
+* Los Bunkers - La Velocidad De La Luz (2013)
 * Las Chaquetas Amarillas - Diez Primeras Canciones (2013)
 * Las Chaquetas Amarillas - Salen Otras Diez (2018)
 * David Byrne, St. Vincent - Love This Giant (2012)
@@ -129,6 +129,7 @@ All the rights belong to the authors.
 * Mac DeMarco - Salad Days (2014)
 * Mac DeMarco - Another One (2015)
 * Mac DeMarco - This Old Dog (2017)
+* ~~Mac DeMarco - Here Comes The Cowboy (2019)~~
 * The Magnetic Fields - Distant Plastic Trees (1991)
 * The Magnetic Fields - The Wayward Bus (1992)
 * The Magnetic Fields - The House of Tomorrow EP (1992)
