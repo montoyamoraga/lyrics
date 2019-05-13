@@ -142,6 +142,12 @@ All the rights belong to the authors.
 * The Magnetic Fields - Realism (2010)
 * The Magnetic Fields - Love at the Bottom of the Sea (2012)
 * The Magnetic Fields - 50 Song Memoir (2017)
+* ~~Manuel García - Pánico (2005)~~
+* ~~Manuel García - Témpera (2008)~~
+* ~~Manuel García - S/T (2010)~~
+* ~~Manuel García - Acuario (2012)~~
+* ~~Manuel García - Retrato Iluminado (2014)~~
+* ~~Manuel García - Harmony Lane (2016)~~
 * ~~Pixies - Come On Pilgrim EP (1987)~~
 * ~~Pixies - Surfer Rosa (1988)~~
 * ~~Pixies - Doolittle (1989)~~
