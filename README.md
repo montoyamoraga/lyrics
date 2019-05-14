@@ -27,9 +27,9 @@ All the rights belong to the authors.
 * Ases Falsos - Conducción (2014)
 * Ases Falsos - El Hombre Puede (2016)
 * Ases Falsos - Mala Fama (2018)
-* ~~Babasónicos - Pasto (1992)~~
-* ~~Babasónicos - Trance Zomba (1994)~~
-* ~~Babasónicos - Dopádromo (1996)~~
+* Babasónicos - Pasto (1992)
+* Babasónicos - Trance Zomba (1994)
+* Babasónicos - Dopádromo (1996)
 * ~~Babasónicos - Babasónica (1997)~~
 * ~~Babasónicos - Vórtice Marxista (1998)~~
 * ~~Babasónicos - Miami (1999)~~
