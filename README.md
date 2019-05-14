@@ -142,7 +142,7 @@ All the rights belong to the authors.
 * The Magnetic Fields - Realism (2010)
 * The Magnetic Fields - Love at the Bottom of the Sea (2012)
 * The Magnetic Fields - 50 Song Memoir (2017)
-* ~~Manuel García - Pánico (2005)~~
+* Manuel García - Pánico (2005)
 * ~~Manuel García - Témpera (2008)~~
 * ~~Manuel García - S/T (2010)~~
 * ~~Manuel García - Acuario (2012)~~
